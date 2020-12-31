@@ -1,0 +1,6 @@
+CHAPTER 152
+GAMING CONTROL (GAMING MACHINES)
+REGULATIONS
+(Section 24)
+[5th July, 2003.]
+- Margin notes: 96 of 2003; 2 of 2005; 28 of 2006; 74 of 2007; 28 of 2011; Ch. 152; R.E. 2003; R.E. 2020.
