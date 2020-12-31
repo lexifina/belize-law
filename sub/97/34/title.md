@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (EL BEN CABANAS
+LIMITED) ORDER
+(Section 4)
+(Gazetted 14th December, 2019.)
+- Margin notes: CAP. 54; R.E. 2020; 82 of 2019.
