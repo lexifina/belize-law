@@ -1,0 +1,4 @@
+CHAPTER 95
+DECLARATION OF BANKS (EVIDENCE) ORDER
+[20th January, 2001]
+- Margin notes: 4 of 2001; CAP. 95; R.E. 2020.
