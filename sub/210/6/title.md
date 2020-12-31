@@ -1,0 +1,5 @@
+CHAPTER 210
+FISHERIES (SEA CUCUMBER) REGULATIONS
+(Section 13)
+[9th May, 2009.]
+- Margin notes: CAP. 210; R.E. 2020; 67 of 2009.
