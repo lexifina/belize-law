@@ -1,0 +1,4 @@
+CHAPTER 292
+HIRE-PURCHASE
+[13th March, 1954]
+- Margin notes: Ch. 214; R.L., 1958; CAP. 220; R.E. 1980-1990; 4 of 1967.
