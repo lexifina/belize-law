@@ -1,0 +1,5 @@
+CHAPTER 222
+WATER INDUSTRY (TARIFFS) BYELAWS
+(Section 87)
+[1st June, 2002]
+- Margin notes: 67 of 2002; Act 1 of 2002; CAP. 222; R.E. 2020; 102 of 2004; 89 of 2008.
