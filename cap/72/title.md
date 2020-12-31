@@ -1,0 +1,4 @@
+CHAPTER 72
+GOVERNMENT HOUSING LOANS
+[31st December, 1960]
+- Margin notes: CAP. 58; R.E. 1980-1990; 29 of 1960; 1 of 1963; 40 of 1963.
