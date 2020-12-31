@@ -1,0 +1,4 @@
+CHAPTER 49
+CUSTOMS REGULATION
+[25th July, 1876]
+- Margin notes: Ch. 36; Ch. 39; R.E.1980-1990; 38 of 1963; 40 of 1963; 14 of 1968; 7 of 1973; 17 of 1978; 11 of 1987; 22 of 1987; 33 of 1991; 26 of 1992; 18 of 1994; 18 of 1998; 18 of 1999; 44 of 2005; 23 of 2013; 6 of 2016; 21 of 2019; 23 of 2020.
