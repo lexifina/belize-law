@@ -1,0 +1,6 @@
+CHAPTER 86
+BELMOPAN CITY COUNCIL (UTILITY AGENCIES)
+(COORDINATION) BY-LAWS
+(sections 25(4) and 50(1))
+[4th June, 2005]
+- Margin notes: S.I. 67 of 2005.
