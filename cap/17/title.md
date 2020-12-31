@@ -1,0 +1,4 @@
+CHAPTER 17
+CARIBBEAN COMMUNITY
+[17th August 2004]
+- Margin notes: 17 of 2004; 38 of 2005.
