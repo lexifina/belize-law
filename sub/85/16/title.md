@@ -1,0 +1,6 @@
+CHAPTER 85
+BELIZE CITY (CONTROL OF GARBAGE AND USE OF
+DUMPSITE) BY-LAWS
+(Section 49)
+[Gazetted 31st January, 2009]
+- Margin notes: CAP. 85; R.E. 2020; 22 of 2009; 98 of 2009.
