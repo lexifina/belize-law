@@ -1,0 +1,7 @@
+CHAPTER 278:02
+STAKE BANK CRUISE DOCKING FACILITY
+DEVELOPMENT ACT (COMMENCEMENT) ORDER
+(section 8)
+[Gazetted 3rd February 2018.]
+- Margin: No.
+- Margin notes: 12 of 2018.
