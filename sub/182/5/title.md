@@ -1,0 +1,6 @@
+CHAPTER 182
+HOUSING AND TOWN PLANNING (FEES)
+REGULATIONS
+(Section 80)
+[30th March, 1996]
+- Margin notes: 42 of 1996; Ch. 148; CAP. 182; R.E. 2020.
