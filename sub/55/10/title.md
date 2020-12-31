@@ -1,0 +1,6 @@
+CHAPTER 55
+RULES GOVERNING THE PAYMENT OF INCOME
+TAX
+(Sections 38 and 94)
+[1st January, 1971]
+- Margin notes: 52 of 1970; 8 of 1975; 16 of 1979; Ch. 46; CAP. 55; R.E. 2020; 73 of 2010.
