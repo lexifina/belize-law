@@ -1,0 +1,4 @@
+CHAPTER 191
+NATIONAL LANDS ACT (COMMENCEMENT) ORDER
+[13th June, 1992]
+- Margin notes: S.I. 83 of 1992; Act 6 of 1992.
