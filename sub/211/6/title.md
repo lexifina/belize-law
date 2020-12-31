@@ -1,0 +1,6 @@
+CHAPTER 211
+BELIZE AGRICULTURAL HEALTH AUTHORITY
+(FOOD SAFETY) REGULATIONS
+(Section 86 (1)(uu) and (ww))
+[17th February, 2001.]
+- Margin notes: 25 of 2001; CAP. 211; R.E. 2020.
