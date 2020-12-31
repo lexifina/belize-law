@@ -1,0 +1,6 @@
+# SCHEDULE I
+[Regulation 3]
+DESCRIPTION OF SAVANNAH AIRSTRIP
+All that lot piece of parcel of land compromising 1.665 acres being a portion of Grant No. 1084 of 1998 belonging to Banana Growers Association situate on the Northern Boundary of the Southern Highway, approximately two miles West of Mango Creek Village, Stann Creek District. It is of the said Grant (Entry 3621, Reg. 21). On the South by the Southern Highway, it is more particularly shown on a plan of subdivision by Department, Belmopan City, Cayo District in Register No. 7 at Entry No. 99485 and is more particularly described as follows:
+Commencing at a concrete pillar, that said pillar being the North Western corner of said parcel, thence in a North Easterly direction on a Grid Bearing of 70⁰52’43” for Grid Distance of 112.355 meter to a concrete pillar, thence in a South Easterly direction on a Grid Bearing of 160⁰06’29” for a Grid distance of 58.838 meters to a concrete pillar, on the Northern Boundary of the Southern Highway thence along the said Highway in a South Westerly Direction on a Grid Bearing of 69⁰57’21” for a Grid Distance of 113.160 meters to a concrete pillar, thence in a North Westerly direction on a Grid Bearing of 160⁰52’43” for a Grid distance of 60.654 meters back to the point of commencement.
+- Margin notes: 57 of 2006.
