@@ -1,0 +1,6 @@
+CHAPTER 224
+SOLID WASTE MANAGEMENT AUTHORITY
+[1st May, 2000]
+PART I
+Preliminary
+- Margin notes: 13 of 1991; S.I. 42 of 2000.
