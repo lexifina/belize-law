@@ -1,0 +1,4 @@
+CHAPTER 194
+REGISTERED LAND
+[10th December, 1977]
+- Margin notes: CAP. 157; R.E. 1980-1990; 2 of 1977; 22 of 1987; 30 of 1988; 6 of 1992; 5 of 2017; 45 of 2017.
