@@ -1,0 +1,5 @@
+CHAPTER 225
+PETROLEUM ACT (COMMENCEMENT) ORDER
+(Section 1)
+[5th October, 1991]
+- Margin notes: 128 of 1991; Act 8 of 1991; CAP. 225; R.E. 2020.
