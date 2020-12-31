@@ -1,0 +1,4 @@
+CHAPTER 258
+LIMITED LIABILITY PARTNERSHIP
+[1st July, 1999]
+- Margin notes: 13 of 1999; S. I. 71 of 1999; 42 of 2002; 17 of 2020.
