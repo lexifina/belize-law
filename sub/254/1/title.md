@@ -1,0 +1,6 @@
+CHAPTER 254
+INDUSTRIAL DESIGNS ACT (COMMENCEMENT)
+ORDER
+(Section 32)
+[3rd February, 2001]
+- Margin notes: 11 of 2001; Act 13 of 2000; CAP. 254; R.E. 2020.
