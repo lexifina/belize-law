@@ -1,0 +1,5 @@
+CHAPTER 210
+(Section 14(1)(b))
+FISHERIES (HOL CHAN MARINE RESERVE) ORDER
+[17th October, 2020]
+- Margin notes: 146 of 2020; CAP. 210; R.E. 2020.
