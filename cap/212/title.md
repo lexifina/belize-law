@@ -1,0 +1,4 @@
+CHAPTER 212
+FOREST FIRE PROTECTION
+[10th November, 1962]
+- Margin notes: CAP. 175; R.E. 1980-1990; 20 of 1962; 38 of 1963; 40 of 1963; 10 of 2000.
