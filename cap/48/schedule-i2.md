@@ -1,0 +1,3 @@
+# SCHEDULE I2
+2This Schedule was originally contained in Ch. 43, R.L., 1958. The schedule was later
+replaced by the Customs Tariff and Trade Classification. Because of its voluminous size, it is printed as a separate booklet by means of a statutory instrument pursuant to sections 3 (2) and 20 (6) of this Act. It is captioned “Customs Tariff and Trade Classification”. This Schedule was amended by Acts No. 7 of 2004, No. 5 of 2005, No. 13 of 2005, No. 19 of 2005, No. 11 of 2008, No. 3 of 2009, No. 7 of 2009, No. 14 of 2010, No. 23 of 2010, No. 12 of 2012, No. 6 of 2013, 14 of 2013, No. 16 of 2015, No. 34 of 2017 and substituted by Act 3 of 2018 and later amended by Act 9 of 2019. This Schedule is also amended by S.I. No. 84 of 2015, 36 of 2016 and 43 of 2016.
