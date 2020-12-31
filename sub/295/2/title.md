@@ -1,0 +1,6 @@
+CHAPTER 295
+STANDARDS (PREPARATION AND DECLARATION)
+REGULATIONS
+(Sections 6, 8, 9 and 19)
+[15th March, 1997.]
+- Margin notes: 23 of 1997; 4 of 1992; CAP. 295; R.E. 2020.
