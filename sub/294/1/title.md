@@ -1,0 +1,6 @@
+CHAPTER 294
+NATIONAL METROLOGY ACT (COMMENCEMENT)
+ORDER
+(Section 1(2))
+(Gazetted 12th December, 2009.)
+- Margin notes: 131 of 2009; CAP. 294; R.E. 2020.
