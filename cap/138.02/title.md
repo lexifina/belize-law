@@ -1,0 +1,4 @@
+CHAPTER 138:02
+FINANCIAL INTELLIGENCE UNIT
+[16th September, 2002]
+- Margin notes: 35 of 2002; 18 of 2008; 21 of 2013; 6 of 2014; S.I. 109 of 2002.
