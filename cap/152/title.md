@@ -1,0 +1,4 @@
+CHAPTER 152
+GAMING CONTROL
+[21st May, 1999]
+- Margin notes: 24 of 1999; 22 of 2013; 17 of 2014; S.I. 67 of 1999.
