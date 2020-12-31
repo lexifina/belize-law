@@ -1,0 +1,6 @@
+CHAPTER 308
+BELIZE CHAMBER OF
+COMMERCE AND INDUSTRY
+[29th August, 2000]
+- Margin: S.I
+- Margin notes: 21 of 2000; S.I. 52 of 2012; 85 of 2017.
