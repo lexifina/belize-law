@@ -1,0 +1,7 @@
+CHAPTER 59:02
+BLAIR ATHOL POWER PROJECT ACT
+(COMMENCEMENT) ORDER
+(Section 6(1))
+(Gazetted 1st June, 2013)
+- Margin: CAP 59:02.
+- Margin notes: 57 of 2013; R.E. 2020.
