@@ -1,0 +1,6 @@
+CHAPTER 154
+HUMANE SLAUGHTER OF ANIMALS REGULATIONS
+(Section 6)
+[11th July, 1981]
+- Margin: Ch 119.
+- Margin notes: 38/1981; CAP. 154; R.E. 2020.
