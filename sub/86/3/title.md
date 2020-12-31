@@ -1,0 +1,4 @@
+CHAPTER 86
+BELMOPAN (REMOVAL OF REFUSE) BY-LAWS
+[26th October, 1985]
+- Margin notes: S.I. 88 of 1985.
