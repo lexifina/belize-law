@@ -1,0 +1,6 @@
+CHAPTER 278
+COMMERCIAL FREE ZONE (AIRPORT)
+(DESIGNATION) ORDER
+(Section 5 (3))
+[18th January, 2003.]
+- Margin notes: 8 of 2003; CAP.278; R.E. 2020.
