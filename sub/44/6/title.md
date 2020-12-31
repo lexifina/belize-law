@@ -1,0 +1,7 @@
+CHAPTER 44
+SOCIAL SECURITY
+(CLAIMS AND PAYMENTS) REGULATIONS
+(Sections 14, 15 and 16)
+[1st June, 1981]
+- Margin: Ch44
+- Margin notes: 81 of 1980; Ch. 34; 9 of 2019; 86 of 2019.
