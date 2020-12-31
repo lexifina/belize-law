@@ -1,0 +1,4 @@
+CHAPTER 119:02
+JUSTICE PROTECTION
+[14th January, 2006]
+- Margin notes: 48 of 2005.
