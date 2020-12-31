@@ -1,0 +1,6 @@
+CHAPTER 4
+BELIZE CONSTITUTION (SENATE) STANDING
+ORDERS
+(Section 70)
+[15th July, 1967]
+- Margin notes: 34 of 1967; 19 of 2002; CAP. 4; R.E. 2020.
