@@ -1,0 +1,6 @@
+CHAPTER 325
+SUGAR (INDUSTRY DEVELOPMENT FUND) (USE)
+REGULATIONS
+(Section 72)
+[17th August, 2002.]
+- Margin notes: 90 of 2002; Act 27 of 2001.
