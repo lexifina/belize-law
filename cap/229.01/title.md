@@ -1,0 +1,4 @@
+CHAPTER 229:01
+INTERCEPTION OF COMMUNICATIONS
+[16th December, 2010]
+- Margin notes: 25 of 2010; 20 of 2013; S.I. 137 of 2013.
