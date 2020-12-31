@@ -1,0 +1,7 @@
+## (SERVULO BAEZA)
+## Minister of Agriculture and Fisheries
+# SCHEDULE
+[Regulation 2]
+PRODUCTS SPECIES Live ruminants Ruminant Meat - fresh, chilled, frozen Ruminant Meat - canned Ruminant Meats - preserved (pickled, salted) Ruminant Sausages Ruminant Viscera for human consumption, industrial use Ruminant Protein - hydrolysed, concentrate, laboratory use Ruminant Elastin Ruminant Glands - for industrial use and industrialized Ruminant Bile - dry Ruminant Meal - meat and bone meal, blood, hoof, horn Ruminant Meal - avian, feather* Meal - fish** Animal feed* Additives - destined for animal consumption Ruminant Milk replacer for calves Ruminant Fat-based preparations Blood and its derivatives Ruminant Bovine foetal serum Biologics (vaccines) and excipients*** Enzymes, hormones and excipients* Veterinary medicaments and excipients Amniotic fluid extract Ruminant Placenta – Industrialized Ruminant Intestinal serosa Ruminant Bone – hydrolysed* Ruminant Gelatin and collagen from articulations Ruminant All specified risk material (SRM) considered in OIE Ruminant
+Request certification that ruminant protein was not used in the elaboration of the product. * ** Request certification that ruminant protein was not used in the elaboration of the product and
+that the product comes from a processing plant producing fish and meal only. *** The product is restricted for use in a species not susceptible to BSE
