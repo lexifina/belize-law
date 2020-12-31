@@ -1,0 +1,6 @@
+CHAPTER 21.02
+CHEMICAL WEAPONS (PROHIBITION) ACT
+(COMMENCEMENT) ORDER
+(Section 35)
+(Gazetted 2nd May, 2015).
+- Margin notes: 21 of 2015.
