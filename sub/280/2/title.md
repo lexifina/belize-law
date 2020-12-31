@@ -1,0 +1,5 @@
+CHAPTER 280
+EXPORT PROCESSING ZONE REGULATIONS
+(section 15)
+[9th May, 1992]
+- Margin notes: S.I. 56 of 1992; Act 8 of 1980.
