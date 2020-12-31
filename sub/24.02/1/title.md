@@ -1,0 +1,6 @@
+CHAPTER 24:02
+INTERNATIONAL FOUNDATIONS ACT
+(COMMENCEMENT) ORDER
+(Section 130)
+[Gazetted 10th April, 2010.]
+- Margin notes: Cap. 24:02; 35 of 2010.
