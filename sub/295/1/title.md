@@ -1,0 +1,5 @@
+CHAPTER 295
+STANDARDS ACT (COMMENCEMENT) ORDER
+(Section 28)
+[16th May, 1992.]
+- Margin notes: 67 of 1992; Act 4 of 1992; CAP. 295; R.E. 2020.
