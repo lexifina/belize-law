@@ -1,0 +1,5 @@
+CHAPTER 2
+CARIBBEAN INVESTMENT CORPORATION
+[12th May, 1979]
+- Margin: G. N.
+- Margin notes: CAP. 14; R. E. 1980-1990; 16 of 1973; 19 of 1978; 495 of 1979.
