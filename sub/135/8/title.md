@@ -1,0 +1,6 @@
+CHAPTER 135
+DEFENCE (PENSIONS AND OTHER GRANTS)
+REGULATIONS
+(Section 166)
+[8th September, 1990.]
+- Margin notes: 97 of 1990; CAP. 135; R.E. 2020; 129 of 2008.
