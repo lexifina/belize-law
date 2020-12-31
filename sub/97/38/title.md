@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (BELIZE FOAM &
+FURNITURE LIMITED) ORDER
+(Section 4)
+(Gazetted 9th May, 2020.)
+- Margin notes: CAP. 54; R.E. 2020; 69 of 2020.
