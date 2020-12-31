@@ -1,0 +1,6 @@
+CHAPTER 270
+INTERNATIONAL BUSINESS COMPANIES
+(VARIATION OF FEES) ORDER
+(Sections 144 and 145)
+[Gazetted 22nd February, 2020.]
+- Margin notes: 2 of 1999; 11 of 2016; 39 of 2016; 23 of 2020; CAP. 270; R.E. 2020.
