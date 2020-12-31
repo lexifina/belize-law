@@ -1,0 +1,6 @@
+# SECOND SCHEDULE
+[By-Law 4(4)]
+I, .................................................... do certify that I have inspected Carriage No. .................... and find that said Carriage in a fit and proper condition for public use.
+(Signed)..............................................
+Authorised Deputy of Commissioner of Police
+Date: .............................
