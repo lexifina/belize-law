@@ -1,0 +1,6 @@
+CHAPTER 89
+PUNTA GORDA (ESTABLISHMENT OF PUBLIC
+POUND) NOTICE
+(Sections 3 and 7)
+[28th September, 1925]
+- Margin notes: Ch. 68; Ch. 138; CAP. 89; R.E. 2020.
