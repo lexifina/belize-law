@@ -1,0 +1,6 @@
+CHAPTER 96
+SUPREME COURT (COUNSEL’S FEES IN CAPITAL
+TRIALS) RULES
+(Section 194 (2)
+[27th January, 1964]
+- Margin notes: 30 of 1964; 77 of 1996; Ch. 93; CAP. 96; R.E. 2020.
