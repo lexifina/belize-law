@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (LYNX HOLDINGS LIMITED)
+ORDER
+(Section 4)
+(Gazetted 9th March, 2019.)
+- Margin notes: CAP. 54; R.E. 2020; 26 of 2019.
