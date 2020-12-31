@@ -1,0 +1,5 @@
+CHAPTER 138
+BELIZE POLICE SERVICE MEDALS REGULATIONS
+(section 53)
+[10th August, 1985]
+- Margin notes: S.I. 68 of 1985; Ch. 109; Act 42 of 1999.
