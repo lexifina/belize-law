@@ -1,0 +1,4 @@
+CHAPTER 196
+STRATA TITLES REGISTRATION
+[1st January, 1994]
+- Margin notes: 23 of 1990; S.I. 136 of 1993.
