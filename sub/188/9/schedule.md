@@ -1,0 +1,9 @@
+## (EDUARDO JUAN)
+## Minister of Natural Resources
+## Minister responsible for Land
+# SCHEDULE
+[regulation 2]
+ORANGE WALK DISTRICT EAST SPECIAL
+DEVELOPMENT AREA
+ALL THAT piece or parcel of land situate in the Orange Walk District containing approximately 118,000 acres, and bounded on the North by the Orange Walk/Corozal District boundaries; on the East by the Orange Walk/ Corozal District boundary; on the South by the Orange Walk/Belize District boundary and parts of Pine Ridge or Big Pond Works; and on the West by the New River and Narrows Branch and more particularly described as follows:
+Commencing at a point where the Orange Walk, Corozal and Belize District boundaries meet having the scaled U.T.M. co-ordinates of 364 060 East and 1987 500 North; thence in a West South West direction for an approximate distance of 29,000 metres, following the Orange Walk/Belize District boundary to a point at Calabash Pond having the scaled U.T.M. co-ordinates of 335 525 East and 1981 250 North; thence in a West North West direction for an approximate distance of 5,530 metres to a point in the middle course of the New River and having the scaled U.T.M. co-ordinates of 330 250 East and 1983 000 North; thence in a general Northern direction, following the middle course of the New River and the Narrows Branch of the New River to a point, at the northern confluence of the Narrows Branch and the Swasey Branch of the New River, having the scaled U.T.M. co-ordinates of 342 455 East and 2012 550 North; thence in a South East South direction, following the Orange Walk/Corozal boundary, for an approximate distance of 10,660 metres to a point, at Cowpen having the scaled U.T.M. co-ordinates of 346 850 East and 2002 775 North; thence in a South East direction, following the Orange Walk/Corozal District boundary, for an approximate distance of 22,875 metres to the point of commencement.
