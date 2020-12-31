@@ -1,0 +1,4 @@
+CHAPTER 179
+ALIENS LANDHOLDING (REPEAL) ACT
+[16th March, 2001]
+- Margin notes: 12 of 2001.
