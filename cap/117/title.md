@@ -1,0 +1,4 @@
+CHAPTER 117
+FIRE (NEGLIGENT USE OF)
+[15th August, 1912]
+- Margin notes: Ch. 23; R.L., 1958; CAP. 89; R.E. 1980-1990; 40 of 1963.
