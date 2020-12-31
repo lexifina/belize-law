@@ -1,0 +1,5 @@
+CHAPTER 297
+LABOUR (AMENDMENT) ACT (COMMENCEMENT)
+ORDER
+[Gazetted 4th June, 2011]
+- Margin notes: S.I. 63 of 2011; Act No. 3 of 2011.
