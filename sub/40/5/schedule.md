@@ -1,0 +1,2 @@
+# SCHEDULE
+All that plot of Crown land comprising approximately two acres situate on the Western Highway at the junction of the Freetown Sibun feeder road mile 16 3/4, bounded on the north by Crown land where it measures 300 feet, on the east by Crown land where it measures 300 feet on the south by Freetown Sibun feeder road where it measures 300 feet and on the west by the Belize Cayo Road where it measures 300 feet.
