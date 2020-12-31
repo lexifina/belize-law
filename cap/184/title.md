@@ -1,0 +1,5 @@
+CHAPTER 184
+LAND ACQUISITION (PUBLIC PURPOSES)
+[1st April, 1947]
+- Margin: [1st April, 1947]
+- Margin notes: Ch. 114, R.L., 1958; CAP. 150; R.E. 1980-1990; 15 of 1962; 40 of 1963; 15 of 1968; 16 of 1975; 16 of 1992.
