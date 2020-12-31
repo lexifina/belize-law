@@ -1,0 +1,5 @@
+CHAPTER 87
+DANGRIGA (ANIMALS RESTRICTION) BY-LAWS
+(Sections 50 and 63)
+[27th March, 1976.]
+- Margin notes: 22 of 1976; Ch. 67; CAP. 87; R.E. 2003; R.E. 2020.
