@@ -1,0 +1,5 @@
+CHAPTER 40
+INFECTIOUS DISEASE (SARS) ORDER
+(section 67)
+[21st June, 2003]
+- Margin notes: 80 of 2003; CAP. 40.
