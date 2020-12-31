@@ -1,0 +1,6 @@
+CHAPTER 314
+CREDIT UNIONS (AMENDMENT) ACT 129 of 2005.
+(COMMENCEMENT) ORDER
+(Section 18)
+[Gazetted 29th October, 2005.]
+- Margin notes: 34 of 2005.
