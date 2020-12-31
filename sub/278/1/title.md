@@ -1,0 +1,5 @@
+CHAPTER 278
+FREE ZONES ACT (COMMENCEMENT) ORDER
+[Section 34]
+[1st July, 2005.]
+- Margin notes: 82 of 2005; CAP.278; R.E. 2020.
