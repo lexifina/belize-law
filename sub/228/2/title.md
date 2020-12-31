@@ -1,0 +1,5 @@
+CHAPTER 228
+AIR MAIL RATES REGULATIONS
+(Section 50)
+[1st April, 1983.]
+- Margin notes: 22 of 1983; 9 of 1986; Ch. 187; CAP.228; R.E.2020.
