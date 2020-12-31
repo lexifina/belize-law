@@ -1,0 +1,13 @@
+CHAPTER 233
+BELIZE PORT AUTHORITY
+DEFINITION OF LIMITS OF PORTS ORDER
+1. Title.
+2. Limits of Ports.
+CHAPTER 233
+DEFINITION OF LIMITS OF PORTS ORDER
+(Section 20)
+[11th October, 1980.]
+1.–This Order may be cited as the
+DEFINITION OF LIMITS OF PORTS ORDER.
+- Margin: Title.
+- Margin notes: 69 of 1980.
