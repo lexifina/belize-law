@@ -1,0 +1,4 @@
+CHAPTER 192
+PRESCRIPTION
+[15th December, 1888]
+- Margin notes: Ch. 199; R.L., 1958; CAP. 155; R.E. 1980-1990.
