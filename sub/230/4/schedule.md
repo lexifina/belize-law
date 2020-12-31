@@ -1,0 +1,9 @@
+# SCHEDULE
+(Regulation 3)
+1.–(1) Every crossing and its limits shall be indicated by alternate black and white stripes not less than 20" nor more than 24" in width and parallel to the side of the road:
+Provided that these provisions shall be regarded as having been complied with in the case of any crossing which for the most part complies with those provisions notwithstanding that there may be some variation in the exact width of such stripes so long as the general indication of the stripes is not thereby materially impaired.
+(2) The limits of a crossing may be indicated by studs placed along each edge, not less than 10" nor more than 28" apart extending to within 50" of the edge of the carriageway; or by a white line 6" wide.
+(3) A crossing shall not be less than 8' in width.
+2. A crossing or its limits shall not be deemed to have ceased to be indicated in accordance with the provisions of this Schedule by reason only of the imperfection or partial displacement or discolouration of any stripe indicating the crossing so long as the general indication of the crossing is not thereby materially impaired.
+3.–The approach to every uncontrolled crossing shall be indicated by a white line 6" wide 45' from the nearest side of the crossing, extending from the side of the road to the centre of the road, on the side of the road on which traffic is proceeding, or in the case of a one-way street across the road:
+Provided that where the Department of Transport is satisfied in relation to any particular approach to a crossing that by reason of the existence of a road junction, at or near the crossing, which is on the same side of that crossing and in the case of a road other than a one-way street, on the same side of the road as that approach, he may reduce the distance of 45' mentioned above or may omit the line.
