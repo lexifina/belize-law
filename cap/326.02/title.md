@@ -1,0 +1,6 @@
+CHAPTER 326:02
+PROFESSIONAL ARCHITECTS (REGISTRATION)
+[13th April, 2001]
+PART I
+Preliminary
+- Margin notes: 15 of 2001; 22 of 2004; S.I. 91 of 2001.
