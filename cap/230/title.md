@@ -1,0 +1,4 @@
+CHAPTER 230
+MOTOR VEHICLES AND ROAD TRAFFIC
+[1st January, 1939]
+- Margin notes: Ch. 62; R. L., 1958; CAP. 192; R. E. 1980-1990; 40 of 1963; 4 of 1965; 4 of 1967; 14 of 1968; 9 of 1972; 16 of 1972; 30 of 1973; 12 of 1978; 28 of 1985; 22 of 1987; 20 of 1990; 20 of 1992; 11 of 1994; 18 of 1998; 42 of 1999; 41 of 2002; 8 of 2008; 22 of 2018; S.I. 88 of 2008.
