@@ -1,0 +1,5 @@
+CHAPTER 251
+INSURANCE ACT (COMMENCEMENT) ORDER
+(Section 185*)
+[17th May, 2004.]
+- Margin notes: Act 11 of 2004; CAP. 251; R.E. 2020; 81 of 2004.
