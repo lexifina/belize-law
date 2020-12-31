@@ -1,0 +1,4 @@
+CHAPTER 13
+FREEDOM OF INFORMATION
+[5th May, 1994]
+- Margin notes: 9 of 1994; 7 of 2008; S. I. 57 of 1994.
