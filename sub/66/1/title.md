@@ -1,0 +1,6 @@
+CHAPTER 66
+TRADE LICENSING (AMENDMENT) ACT
+(COMMENCEMENT) ORDER
+(Section 4)
+(Gazetted 14th January, 2006.)
+- Margin notes: 5 of 2006; CAP. 66; R.E. 2020.
