@@ -1,0 +1,4 @@
+CHAPTER 320
+LEGAL PROFESSION
+[21st June, 1980]
+- Margin notes: CAP. 250; R.E. 1980-1990; 8 of 1980; 22 of 2004; 22 of 2014; S.I. 87 of 2007; S.I.110 of 2009; S.I. 110 of 2011.
