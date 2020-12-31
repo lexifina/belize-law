@@ -1,0 +1,4 @@
+CHAPTER 86
+BELMOPAN (LIVESTOCK) BY-LAWS
+[9th May, 1987]
+- Margin notes: S.I. 42 of 1987.
