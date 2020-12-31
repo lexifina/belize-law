@@ -1,0 +1,8 @@
+CHAPTER 44
+SOCIAL SECURITY (SELF–EMPLOYED PERSONS)
+REGULATIONS
+(Section 46)
+[19th October, 2002]
+PART 1
+Preliminary
+- Margin notes: 125 of 2002; Ch. 44.
