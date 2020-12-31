@@ -1,0 +1,6 @@
+CHAPTER 196
+STRATA TITLES REGISTRATION ACT
+(COMMENCEMENT) ORDER
+(section 1)
+[18th December, 1993]
+- Margin notes: S.I. 136 of 1993; Act 23 of 1990.
