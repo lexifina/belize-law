@@ -1,0 +1,5 @@
+CHAPTER 320
+LEGAL PROFESSION (CODE OF CONDUCT) RULES
+(Section 18)
+[23rd March, 1991.]
+- Margin notes: 42 of 1991; Ch. 250; CAP. 320; R.E. 2020.
