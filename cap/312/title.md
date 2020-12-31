@@ -1,0 +1,4 @@
+CHAPTER 312
+CLUBS (REGISTRATION)
+[9th May, 1953]
+- Margin notes: Ch. 155; R.L., 1958; CAP. 245; R.E. 1980-1990; 40 of 1963; 5 of 1964; 12 of 1966; 4 of 1967; 2 of 1973; 3 of 1978; 42 of 1999.
