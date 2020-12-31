@@ -1,0 +1,6 @@
+CHAPTER 228
+POST OFFICE (WWF WOOLLY OPPOSSUM) (FIRST
+DAY COVERS) REGULATIONS
+(Section 50)
+[Gazetted 30th October, 2004]
+- Margin notes: 176 of 2004.
