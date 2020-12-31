@@ -1,0 +1,6 @@
+CHAPTER 55
+CAPITAL) (AUSTRIA) ORDER 106 of 2012.
+(Section 50)
+(Gazetted 1st December, 2012.)
+- Margin: DOUBLE TAXATION RELIEF (TAXES ON INCOME AND
+- Margin notes: CAP. 55; R.E. 2020.
