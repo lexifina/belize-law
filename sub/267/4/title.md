@@ -1,0 +1,6 @@
+CHAPTER 267
+INTERNATIONAL BANKING (AMENDMENT) ACT
+(COMMENCEMENT) ORDER
+(sections 26)
+[Gazetted 30th October, 2004.]
+- Margin notes: S.I. 103 of 1996; S.I. 34 of 2002; S.I. 179 of 2004; Act 34 of 2002.
