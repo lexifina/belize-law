@@ -1,0 +1,6 @@
+CHAPTER 250
+COMPANIES (APPOINTMENT OF REGISTRAR)
+ORDER
+Section 221 (1a)
+(Gazetted 8th August, 2020)
+- Margin notes: 112 of 2020; CAP. 250; R.E. 2020.
