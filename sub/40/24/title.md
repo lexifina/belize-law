@@ -1,0 +1,5 @@
+CHAPTER 40
+PUBLIC HEALTH
+(BELIZE CITY PUBLIC CEMETERY) BY-LAWS
+(section 32) [1st July, 2011]
+- Margin notes: S.I. 72 of 2011.
