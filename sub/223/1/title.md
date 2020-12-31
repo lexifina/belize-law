@@ -1,0 +1,6 @@
+CHAPTER 223
+PUBLIC UTILITIES COMMISSION ACT
+(COMMENCEMENT) ORDER
+(section 57)
+[4th September, 1999]
+- Margin notes: S.I. 96 of 1999; Act 39 of 1999.
