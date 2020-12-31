@@ -1,0 +1,6 @@
+CHAPTER 185
+LAND ADJUDICATION ACT (COMMENCEMENT)
+ORDER
+(Section 1)
+[24th April, 1999.]
+- Margin notes: Act 27 of 1992; 46 of 1999; Ch. 185; R.E. 2003; R.E. 2020.
