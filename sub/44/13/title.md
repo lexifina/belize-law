@@ -1,0 +1,6 @@
+CHAPTER 44
+SOCIAL SECURITY (INSURANCE STAMPS)
+REGULATIONS
+(Section 9 and 10)
+[19th May, 1981]
+- Margin notes: 84 of 1980; Ch. 44.
