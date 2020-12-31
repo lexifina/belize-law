@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (VEGA’S INDUSTRIES
+LIMITED) ORDER
+(Section 4)
+(Gazetted 18th April, 2015.)
+- Margin notes: CAP. 54; R.E. 2020; 20 of 2015; 153 of 2020.
