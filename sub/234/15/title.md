@@ -1,0 +1,6 @@
+CHAPTER 234
+HARBOURS AND MERCHANT SHIPPING
+(CERTIFICATE OF COMPETENCY) REGULATIONS
+(section 18(1)(a), (h), and (i))
+[15th September, 2018]
+- Margin notes: S.I. 51 of 2018.
