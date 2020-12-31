@@ -1,0 +1,5 @@
+CHAPTER 153
+NOTICE CAP. 153. (Section 2)
+[4th July, 1964]
+- Margin: DOGS (DECLARATION OF TOWN) (HATTIEVILLE)
+- Margin notes: Act 25 of 1964; Ch. 115; R.E. 2020.
