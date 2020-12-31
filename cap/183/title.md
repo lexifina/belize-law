@@ -1,0 +1,4 @@
+CHAPTER 183
+LAND ACQUISITION (PROMOTERS)
+[27th November, 1948]
+- Margin notes: Ch. 113; R.L., 1958; CAP. 149; R.E. 1980-1990; 38 of 1963; 40 of 1963; S.I. 17 of 1964.
