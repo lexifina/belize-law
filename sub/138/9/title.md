@@ -1,0 +1,5 @@
+CHAPTER 138
+POLICE TRUST FUND (REVISED) REGULATIONS
+(section 53)
+[1st December, 2006]
+- Margin notes: S.I. 122 of 2006.
