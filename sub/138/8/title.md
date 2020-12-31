@@ -1,0 +1,6 @@
+CHAPTER 138
+POLICE (IDENTIFICATION PARADES)
+REGULATIONS
+(section 53)
+[9th December, 2006]
+- Margin notes: S.I. 118 of 2006.
