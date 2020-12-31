@@ -1,0 +1,6 @@
+CHAPTER 43
+SOCIAL INVESTMENT FUND ACT
+(COMMENCEMENT) ORDER
+(section 1(2))
+[27th April, 1996]
+- Margin notes: S.I. 59 of 1996; Act 3 of 1996.
