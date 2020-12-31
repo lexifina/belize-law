@@ -1,0 +1,5 @@
+CHAPTER 44
+SOCIAL SECURITY (BENEFIT) REGULATIONS
+(Sections 12, 14, 15, 16, 17, 18 and 21)
+[1st June, 1981]
+- Margin notes: Ch. 34; 82 of 1980; 53 of 1989; 91 of 1991; 99 of 1993; 188 of 1994; 39 of 1996; 70 of 1997; 89 of 1998; 108 of 1999; 131 of 2000; Ch. 44; 89 of 2011; 33 of 2016; 7 of 2019; 30 of 2019; 43 of 2020.
