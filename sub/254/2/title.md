@@ -1,0 +1,5 @@
+CHAPTER 254
+INDUSTRIAL DESIGNS REGULATIONS
+(Section 28)
+[3rd February, 2001.]
+- Margin notes: 16 of 2001; Act 13 of 2000; CAP. 254; R.E. 2020.
