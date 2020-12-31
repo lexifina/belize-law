@@ -1,0 +1,6 @@
+CHAPTER 270
+INTERNATIONAL BUSINESS COMPANIES
+REGULATIONS
+(Section 145)
+[Gazetted 13th October, 2018.]
+- Margin notes: 61 of 2018; CAP. 270; R.E. 2020.
