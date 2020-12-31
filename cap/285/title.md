@@ -1,0 +1,6 @@
+CHAPTER 285
+HOTELS AND TOURIST ACCOMMODATION
+[1st October, 1997]
+PART I
+Preliminary
+- Margin notes: 12 of 1997; 36 of 2001; 6 of 2020; 20 of 2020; S.I. 92 of 1997.
