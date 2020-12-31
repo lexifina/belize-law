@@ -1,0 +1,7 @@
+CHAPTER 149.01
+REFRIGERATION TECHNICIANS (LICENSING)
+[1st July, 2010]
+Short title.
+PART I
+Preliminary
+- Margin notes: 1 of 2010; S.I. 66 of 2010.
