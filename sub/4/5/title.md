@@ -1,0 +1,6 @@
+CHAPTER 4
+BELIZE CONSTITUTION (PUBLIC SERVICE)
+REGULATIONS
+(Section 106 (3))
+[Gazetted 11th October, 2014]
+- Margin notes: CAP. 4; R.E. 2020; 59 of 2014; 26 of 2015.
