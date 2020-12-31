@@ -1,0 +1,6 @@
+CHAPTER 13
+FREEDOM OF INFORMATION ACT
+(COMMENCEMENT) ORDER
+(Section 2)
+[9th July, 1994.]
+- Margin notes: 57 of 1994; Act 9 of 1994; CAP. 13; R.E. 2020.
