@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (ROYAL KAHAL RESORT
+LIMITED) ORDER
+(Section 4)
+(Gazetted 25th August, 2018.)
+- Margin notes: CAP. 54; R.E. 2020; 48 of 2018.
