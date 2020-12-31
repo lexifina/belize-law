@@ -1,0 +1,8 @@
+CHAPTER 233
+BELIZE PORT AUTHORITY (TARIFF) REGULATIONS
+(Section 52)
+[12th April, 1980.]
+1.–These Regulations may be cited as the
+PORT AUTHORITY (TARIFF) REGULATIONS.
+- Margin: Short title.
+- Margin notes: 26 of 1980; 59 of 1980; 72 of 1980; 103 of 1985; 41 of 1990; 21 of 1992; 136 of 2000; 143 of 2004; 12 of 2008; 81 of 2008; 160 of 2020.
