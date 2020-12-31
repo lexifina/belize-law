@@ -1,0 +1,6 @@
+CHAPTER 55
+INCOME TAX (RECOGNISED SPORTS AND
+FACILITIES) ORDER
+(Section 12)
+[28th February, 1981]
+- Margin notes: Ch. 46; 11 of 1981; CAP. 55; R.E. 2020.
