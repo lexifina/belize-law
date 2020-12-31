@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (SRI-LUCK PLASTICS
+LIMITED) ORDER
+(Section 4)
+(Gazetted 19th March, 2016)
+- Margin notes: CAP. 54; R.E. 2020; 21 of 2016.
