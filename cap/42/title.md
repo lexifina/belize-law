@@ -1,0 +1,4 @@
+CHAPTER 42
+SCHOOL TEACHERS’ PENSIONS
+[1st January, 1961]
+- Margin notes: CAP. 33; R.E. 1980-1990; 30 of 1960; 16 of 1963; 38 of 1963; 40 of 1963; 16 of 1968; 26 of 1980; 7 of 1991.
