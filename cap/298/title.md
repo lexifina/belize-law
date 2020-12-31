@@ -1,0 +1,5 @@
+CHAPTER 298
+SETTLEMENT OF DISPUTES IN
+ESSENTIAL SERVICES
+[24th October, 1953]
+- Margin notes: Ch. 146, R. L., 1958; CAP. 235; R. E. 1980-1990; 40 of 1963; 1 of 1969; 15 of 1982; 22 of 1987; 17 of 1996; S. I. 17 of 1964; S. I. 57 of 1973; S. I. 92 of 1981; S. I. 51 of 1988; S.I. 86 of 2015; S.I. 87 of 2015.
