@@ -1,0 +1,6 @@
+CHAPTER 293
+SUPPLIES CONTROL (IMPORT/EXPORT)
+REGULATIONS
+(Section 3)
+[12th November, 1988]
+- Margin notes: 89 of 1988; 100 of 1988; 65 of 1989; 89 of 1992; 128 of 1992; 67 of 1998; 104 of 1998; 92 of 1999; 6 of 2001; Ch. 221; 94 of 2005; 72 of 2008; 113 of 2008; 4 of 2009; 77 of 2009; 96 of 2009; 70 of 2010; 7 of 2011; 72 of 2012; 60 of 2020; 61 of 2020; 79 of 2020.
