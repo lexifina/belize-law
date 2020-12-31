@@ -1,0 +1,5 @@
+CHAPTER 324
+REGISTRATION OF NURSING HOMES
+[30th December, 1957]
+- Margin: R.E 1980-1990.
+- Margin notes: Ch.92; R.L. 1958; CAP.255; 40 of 1963; 15 of 2004.
