@@ -1,0 +1,4 @@
+CHAPTER 280
+DESIGNATED PROCESSING AREAS ACT
+21st December, 2018.
+- Margin notes: 27 of 2018.
