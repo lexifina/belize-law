@@ -1,0 +1,16 @@
+# SCHEDULE A
+[Regulation 2]
+FORM OF INVOICE
+Marks and Quantity and Selling Price to
+Purchaser Numbers on Description of Country of Origin
+Packages Goods
+c.i.f.*
+@ Amount
+*Where goods are not sold c.i.f. the selling price and all charges incurred should be specified separately and totalled, the letters “c.i.f.” being written opposite the total.
+Details of charges included in the c.i.f. price.
+1. Ocean freight .......................................................................
+2. Inland freight (rail or canal) and other charges to dock area
+including inland insurance ...................................................
+3. Cartage to rail and/or to docks ……….................................
+4. Marine Insurance .................................................................
+5. Buying Commission ............................................................
