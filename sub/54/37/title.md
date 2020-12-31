@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (BELIZE ESTATE COMPANY
+LIMITED) ORDER
+(Section 4)
+(Gazetted 8th February, 2020.)
+- Margin notes: CAP. 54; R.E. 2020; 18 of 2020.
