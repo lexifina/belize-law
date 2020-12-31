@@ -1,0 +1,4 @@
+CHAPTER 131
+BELIZE BUILDING ACT (COMMENCEMENT) ORDER
+(Gazetted 27th August, 2005).
+- Margin notes: R.E. 2020; CAP. 131; 104 of 2005.
