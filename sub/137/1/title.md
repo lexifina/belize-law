@@ -1,0 +1,5 @@
+CHAPTER 137
+NATIONAL FIRE SERVICE (FIRE RATE) ORDER
+(Section 9)
+(Gazetted 5th July, 2003)
+- Margin notes: 91 of 2003; CAP. 137; R.E. 2020.
