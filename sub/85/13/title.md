@@ -1,0 +1,6 @@
+CHAPTER 85
+BELIZE CITY (BILLBOARDS AND BANNERS) (FEES)
+BY-LAWS
+(Sections 49)
+[19th June, 1999.]
+- Margin notes: 69 of 1999; Act 1 of 1999.
