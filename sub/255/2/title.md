@@ -1,0 +1,6 @@
+CHAPTER 255
+PROTECTION OF NEW PLANT VARIETIES
+REGULATIONS
+(Section 53)
+[25th August, 2001.]
+- Margin notes: 116 of 2001; Ch. 255.
