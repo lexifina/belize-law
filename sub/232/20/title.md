@@ -1,0 +1,6 @@
+CHAPTER 232
+PUBLIC ROADS (SANTA ELENA/SAN IGNACIO BY-
+PASS) ORDER
+(Section 7)
+[Gazetted 11th January, 2014.]
+- Margin notes: 2 of 2014; CAP. 232; R.E. 2020.
