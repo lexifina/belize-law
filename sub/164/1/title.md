@@ -1,0 +1,6 @@
+CHAPTER 164
+PASSPORTS (AMENDMENT) ACT
+(COMMENCEMENT) ORDER
+(Section 3)
+(Gazetted 13th October, 2018)
+- Margin notes: CAP. 164; R.E. 2020; 66 of 2018; Act 11 of 2018.
