@@ -1,0 +1,6 @@
+CHAPTER 48
+CUSTOMS AND EXCISE (DUTIES ACT)
+REGULATIONS
+(Section 5(2))
+[10th January, 1981.]
+- Margin notes: CAP. 38; R.E.1980-1990; 1 of 1981; CAP.48; R.E.2020.
