@@ -1,0 +1,7 @@
+CHAPTER 128
+JURIES (STRIKING OF PANEL OF COMMON JURORS)
+RULE
+(Section 15)
+[18th December, 1971.]
+- Margin: R.E 2020.
+- Margin notes: Ch. 78; 68/1971; CAP.128.
