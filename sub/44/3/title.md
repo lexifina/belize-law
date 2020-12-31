@@ -1,0 +1,6 @@
+CHAPTER 44
+SOCIAL SECURITY (CONTRIBUTIONS)
+REGULATIONS
+(Section 10)
+[1st June, 1981]
+- Margin notes: 85 of 1980.
