@@ -1,0 +1,4 @@
+CHAPTER 260
+MONEYLENDERS
+[13th March, 1954]
+- Margin notes: Ch. 260; R.L., 1958; CAP. 210; R.E. 1980-1990; 40 of 1963; 4 of 1998; 13 of 2017; S.I. 28 of 2017.
