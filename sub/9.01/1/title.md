@@ -1,0 +1,6 @@
+CHAPTER 9:01
+RECALL OF ELECTED REPRESENTATIVES ACT
+(COMMENCEMENT) ORDER.
+(Section 11)
+(Gazetted 13th November, 2010)
+- Margin notes: 104 of 2010.
