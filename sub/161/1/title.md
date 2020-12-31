@@ -1,0 +1,5 @@
+CHAPTER 161
+BELIZEAN NATIONALITY REGULATIONS
+[12th December, 1981]
+- Margin: S.I
+- Margin notes: 100 of 1981; S.I. 90 of 1985; S.I. 57 of 1990; S.I. 24 of 1999.
