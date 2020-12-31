@@ -1,0 +1,6 @@
+CHAPTER 87
+TOWN COUNCILS (SAN PEDRO) (ALTERATION OF
+BOUNDARIES) ORDER
+(Sections 2 and 63)
+[19th June, 1993.]
+- Margin notes: 79 of 1993; Ch. 67; CAP. 87; R.E. 2003; R.E. 2020.
