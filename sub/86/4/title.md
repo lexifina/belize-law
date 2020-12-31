@@ -1,0 +1,4 @@
+CHAPTER 86
+BELMOPAN (MARKET) BY-LAWS
+[21st March, 1987]
+- Margin notes: S.I. 26 of 1987.
