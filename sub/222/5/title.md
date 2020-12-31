@@ -1,0 +1,5 @@
+CHAPTER 222
+WATER INDUSTRY (RATES) ORDER
+(Section 155)
+[30th November, 1996]
+- Margin notes: CAP.185; 150 of 1996; CAP. 222; R.E. 2020.
