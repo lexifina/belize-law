@@ -1,0 +1,6 @@
+CHAPTER 153
+DOGS (DECLARATION OF TOWN) (BELMOPAN)
+NOTICE
+(Section 2)
+[16th November, 1985]
+- Margin notes: Act 96 of 1985; Ch. 115; CAP. 153; R.E. 2020.
