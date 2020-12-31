@@ -1,0 +1,4 @@
+CHAPTER 252
+COPYRIGHT ACT (COMMENCEMENT) ORDER
+[26th August, 2000.]
+- Margin notes: 77 of 2000.
