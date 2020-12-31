@@ -1,0 +1,4 @@
+CHAPTER 206
+BEES CONTROL
+[4th August, 1962]
+- Margin notes: CAP. 169; R.E. 1980-1990; 11 of 1962; 40 of 1963; 42 of 1999; S.I. 17 of 1964.
