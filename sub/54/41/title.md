@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (GROUP INVESTMENT
+LIMITED) ORDER
+(Section 4)
+(Gazetted 14th November, 2020.)
+- Margin notes: CAP. 54; R.E. 2020; 167 of 2020.
