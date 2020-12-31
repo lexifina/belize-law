@@ -1,0 +1,6 @@
+CHAPTER 87
+TOWN COUNCILS (STANDING ORDERS)
+REGULATIONS
+(Sections 19 and 63)
+[4th June, 1966.]
+- Margin notes: 36 of 1966; 30 of 1985; Ch. 67; CAP. 87; R.E. 2003; R.E. 2020.
