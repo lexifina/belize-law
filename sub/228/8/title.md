@@ -1,0 +1,6 @@
+CHAPTER 228
+POST OFFICE (ORCHIDS) (FIRST DAY COVERS)
+REGULATIONS
+(Section 50)
+[Gazetted 18th December, 2010.]
+- Margin notes: 120 of 2010; CAP. 228; R.E. 2020.
