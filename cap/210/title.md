@@ -1,0 +1,4 @@
+CHAPTER 210
+FISHERIES RESOURCES ACT
+30th January 2020
+- Margin notes: 7 of 2020; S.I. 20 of 2020.
