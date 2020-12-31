@@ -1,0 +1,6 @@
+CHAPTER 325
+SUGAR INDUSTRY ACT
+(COMMENCEMENT) ORDER
+(Section 75)
+[15th September, 2001.]
+- Margin notes: 131 of 2001; Act 27 of 2001.
