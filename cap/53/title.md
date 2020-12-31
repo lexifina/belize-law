@@ -1,0 +1,4 @@
+CHAPTER 53
+EXCISE REGULATION
+[13th March, 1907]
+- Margin notes: Ch. 37; R.L., 1958; CAP. 44; R.E. 1980-1990; 40 of 1963; 14 of 1982; 22 of 1987; 42 of 1999.
