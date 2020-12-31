@@ -1,0 +1,5 @@
+CHAPTER 269
+INTERNATIONAL INSURANCE REGULATIONS
+(sections 5, 8, 22 and 39)
+[15th July, 2000]
+- Margin notes: S.I. 64 of 2000; Act 10 of 1999; S.I. 16 of 2017.
