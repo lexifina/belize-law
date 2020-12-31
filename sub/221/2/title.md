@@ -1,0 +1,6 @@
+CHAPTER 221
+ELECTRICITY (AREAS OF SUPPLY OF ENERGY)
+ORDER
+(section 6)
+[9th December, 1972]
+- Margin notes: S.I. 50 of 1972; S.I. 43 of 1976; S.I. 79 of 1978; S.I. 109 of 1989; S.I. 117 of 1989; CAP. 182.
