@@ -1,0 +1,3 @@
+CHAPTER 40
+SAN IGNACIO CEMETERIES BY-LAWS
+- Margin notes: Ch. 87; Ch. 31.
