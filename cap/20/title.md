@@ -1,0 +1,4 @@
+CHAPTER 20
+CARIBBEAN INVESTMENT FUND
+[2nd October, 1999]
+- Margin notes: 38 of 1999; S. I. 63 of 2000.
