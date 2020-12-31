@@ -1,0 +1,5 @@
+CHAPTER 326
+VETERINARY SURGEONS (FEES) REGULATIONS
+(Section 32)
+[5th June, 1999.]
+- Margin notes: 65 of 1999; Act 6 of 1996; CAP. 326; R.E. 2020.
