@@ -1,0 +1,5 @@
+CHAPTER 222
+WATER INDUSTRY (PLUMBING) CODE
+(Sections 137)
+[20th March, 1982]
+- Margin notes: CAP. 185; 29 of 1982; CAP. 222; R.E. 2020.
