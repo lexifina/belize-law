@@ -1,0 +1,4 @@
+CHAPTER 209
+CHICLE PROTECTION ACT
+[2nd December, 1935]
+- Margin notes: Ch. 116; R.L., 1958; CAP. 172; R.E. 1980-1990; 40 of 1963; S.I. 16 of 1965; S.I. 18 of 1965.
