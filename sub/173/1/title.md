@@ -1,0 +1,6 @@
+CHAPTER 173
+FAMILIES AND CHILDREN ACT (COMMENCEMENT)
+ORDER
+(section 1)
+[18th July, 1998]
+- Margin notes: S.I. 78 of 1998; Act 17 of 1998.
