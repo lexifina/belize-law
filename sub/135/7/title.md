@@ -1,0 +1,6 @@
+CHAPTER 135
+DEFENCE (PAY AND ALLOWANCES)
+REGULATIONS
+(Section 166)
+[4th January, 1978.]
+- Margin notes: 9 of 1978; 104 of 1981; Ch. 106; CAP. 135; R.E. 2020.
