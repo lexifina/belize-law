@@ -1,0 +1,4 @@
+CHAPTER 214
+MEAT AND LIVESTOCK ACT
+[16th April, 1977]
+- Margin notes: CAP. 177; R.E. 1980-1990; 1 of 1977; 30 of 1980; 22 of 1987; 29 of 1988.
