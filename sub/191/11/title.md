@@ -1,0 +1,6 @@
+CHAPTER 191
+NATIONAL LANDS (MODE OF PAYMENT)
+REGULATIONS
+(section 44)
+[4th December, 2020]
+- Margin notes: S.I. 171 of 2020.
