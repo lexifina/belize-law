@@ -1,0 +1,6 @@
+CHAPTER 328
+SCRAP METAL RECYCLERS (REPEAL)
+REGULATIONS
+(Section 45)
+(Gazetted 24th November, 2012.)
+- Margin notes: CAP. 320; R.E. 2020; 36 of 2011; 98 of 2012.
