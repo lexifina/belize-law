@@ -1,0 +1,6 @@
+CHAPTER 251:01
+DEPOSIT INSURANCE ACT
+(COMMENCEMENT) ORDER
+(Section 48)
+[Gazetted 13th June, 2020]
+- Margin notes: 87 of 2020; CAP. 251:01; R.E. 2020.
