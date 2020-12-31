@@ -1,0 +1,6 @@
+CHAPTER 87
+TOWN COUNCILS (ORANGE WALK) (ALTERATION
+OF BOUNDARIES) ORDER
+(Sections 2 and 63)
+[20th July, 1996.]
+- Margin notes: 97 of 1996; Ch. 67; CAP. 87; R.E. 2003; R.E. 2020.
