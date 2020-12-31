@@ -1,0 +1,4 @@
+CHAPTER 102
+CRIME CONTROL AND CRIMINAL JUSTICE
+[4th March 1993]
+- Margin notes: 26 of 1992; 6 of 1994; 28 of 1994; 18 of 1998; 41 of 2001; 25 of 2003; 5 of 2008; 24 of 2010; 19 of 2012; 19 of 2014; 6 of 2018; 17 of 2018; 24 of 2020; S.I. 32 of 1993; S.I. 10 of 1994; S.I. 48 of 1994; S.I. 14 of 1995; S.I. 81 of 1998.
