@@ -1,0 +1,19 @@
+COMMISSION OF INQUIRY (INVESTIGATION INTO CIRCUMSTANCES SURROUNDING THE DEATH OF
+TWO PERSONS AT OTOXHA VILLAGE, TOLEDO
+DISTRICT)
+(Section 2)
+[Gazetted 19th October, 2002.]
+TO: DR. ANGEL CAL, Esq.
+JUAN ACK, Esq. KENT HAYLOCK, Esq.
+WHEREAS, an incident occurred on the 27th day of September 2002 near the Village of Otoxha in the Toledo District involving certain members of the Belize Security Services, Public Officers and villagers of nearby communities, which resulted in the deaths of Alfredo Chen and Seriano Choc, and the wounding of certain other persons;
+AND WHEREAS representatives have been made to me by certain sections of the community that it is in the national interest that an impartial and independent inquiry should be held into the circumstances surrounding the aforementioned incident to determine whether there was fairness in the application of the law;
+AND WHEREAS it seems to me desirable that an impartial and independent inquiry should be held into the said incident and that a Commission of Inquiry shall issue as hereinafter mentioned.
+NOW KNOW YE that by virtue of the powers and authority vested in me by section 2 of the Commissions of Inquiry Act, Chapter 127 of the Laws of Belize, Revised Edition 2000, I, SAID W. MUSA, PRIME MINISTER, do by this Commission, appoint you the said DR. ANGEL CAL, Esq., JUAN ACK, Esq., and KENT HAYLOCK, Esq. to be Commissioners for the purpose hereinafter mentioned with all the powers by the said Act conferred, and I DO authorize the said Commissioners in the manner in the said Act provided, to make a full, faithful and impartial inquiry into the circumstances surrounding the incident which occurred near the Village of Otoxha in the Toledo district on the 27th day of September 2002, resulting in the death of Alfredo Chen and Seriano Choc and the wounding of certain other persons, with specific reference to the following matters, to wit–
+(a) to investigate the circumstances surrounding the deaths of Alfredo Chen and Seriano Choc and the wounding of certain other persons;
+(b) to determine whether any excessive or unjustifiable force was used by the Belize Security Forces in the course of the encounter;
+(c) to hear and inquire into any other matter relating to the above;
+I HEREBY DIRECT that you the said DR. ANGEL CAL, Esq. shall be the Chairman of the said Commission to hold the Inquiry as foresaid, and I also direct that each of you having made and subscribed an oath or affirmation as required by law and having deposited the same with the Secretary to the Cabinet, you do hold you meetings at such place and at such time or times as you the said Commissioners may appoint and that you the said Commissioners do make report as soon as may be practicable of the result of your inquiries with such comments and recommendations as you may think fit, furnishing me with a full statement of your proceedings and the reasons leading to the conclusion and recommendations at which you may arrive or report.
+I DO HEREBY REQUIRE AND DIRECT all public officers and other persons to whom you may apply for assistance or information for the purpose of your investigation to render all such assistance and furnish all such information as may be rendered or furnished in that behalf.
+SAVE AND EXCEPT THAT whenever you intend to apply for information or assistance from any member of the Police Department or any other person, for the purpose of your investigation, you shall be required to consult with the Director of Public Prosecutions in relation thereto, and if the Director of Public Prosecutions shall thereafter inform you in writing that the provision of any such information and/or assistance would be prejudicial either to any ongoing criminal investigation or trial (as the case may be) then no such information and/or assistance shall be required to be provided to you.
+MADE in Belmopan this 11th day of October, 2002.
+- Margin notes: R.E. 2003; 120 of 2002; CAP. 127; R.E. 2020.
