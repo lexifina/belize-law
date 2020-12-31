@@ -1,0 +1,4 @@
+CHAPTER 55
+INCOME TAX (DEDUCTIONS FROM GOVERNMENT
+- Margin: Ch..46.
+- Margin notes: Ch. 38; CAP.55; R.E.2020.
