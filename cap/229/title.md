@@ -1,0 +1,4 @@
+CHAPTER 229
+BELIZE TELECOMMUNICATIONS
+[13th August, 2002]
+- Margin notes: 16 of 2002; 29 of 2005; 9 of 2009; 8 of 2011; 21 of 2014; S.I. 91 of 2002; S.I. 104 of 2009; S.I.130 of 2009.
