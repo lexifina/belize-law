@@ -1,0 +1,6 @@
+CHAPTER 93
+BELIZE FAMILY COURT (PLACE OF SITTING)
+ORDER
+(Section 8(1))
+[16th October, 1999.]
+- Margin notes: 115 of 1999; Ch. 83A; CAP. 93; R.E. 2020.
