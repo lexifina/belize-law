@@ -1,0 +1,5 @@
+CHAPTER 50
+DEPARTURE TAX (REVIEW OF RATES) ORDER
+(Section 6(1))
+(1st July, 1989.)
+- Margin notes: 66 of 1989; Ch. 53A; CAP. 50; R.E. 2020.
