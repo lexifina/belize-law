@@ -1,0 +1,6 @@
+CHAPTER 210
+FISHERIES (TURNEFFE ATOLL MARINE RESERVE)
+ORDER
+(Section 14)
+[1st December, 2012]
+- Margin notes: 105 of 2012; CAP. 210; R.E. 2020.
