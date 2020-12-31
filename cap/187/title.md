@@ -1,0 +1,4 @@
+CHAPTER 187
+LAND SURVEYORS ACT
+[10th December, 1977]
+- Margin notes: CAP. 152; R.E.1980-1990; 3 of 1977; 10 of 1990; 22 of 2004; S.I.76 of 1977.
