@@ -1,0 +1,6 @@
+CHAPTER 135
+DEFENCE (EMPLOYMENT OF FORCE OUTSIDE
+BELIZE) ORDER
+(Section 7)
+[12th January, 2002.]
+- Margin notes: 9 of 2002; CAP. 135; R.E. 2020.
