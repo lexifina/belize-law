@@ -1,0 +1,4 @@
+CHAPTER 247
+BUSINESS NAMES
+[30th December, 1950]
+- Margin notes: Ch. 105; R.L. 1958; CAP. 204; R.E. 1980-1990; 40 of 1963; 1 of 1969; 23 of 1985; 22 of 1987; 15 of 2018; 15 of 2020.
