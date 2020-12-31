@@ -1,0 +1,5 @@
+CHAPTER 232
+COASTAL PLAIN ROAD (OPENING) ORDER
+(Section 7)
+[9th December, 1995]
+- Margin notes: 125 of 1995; Ch. 195; CAP. 232; R.E. 2020.
