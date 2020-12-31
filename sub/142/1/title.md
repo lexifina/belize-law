@@ -1,0 +1,7 @@
+CHAPTER 142
+PUBLIC SAFETY (PRESCRIBED AREA) (MOVEMENT)
+(RESTRICTION) (REVOCATION) REGULATIONS
+(section 2)
+(Gazetted 24th May, 2016.)
+- Margin: No.
+- Margin notes: 48 of 2016.
