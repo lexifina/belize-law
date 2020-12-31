@@ -1,0 +1,6 @@
+CHAPTER 96
+INDICTABLE PROCEDURE (AMENDMENT) ACT
+(COMMENCEMENT) ORDER
+(Section 5)
+(Gazetted 30th July, 2011.)
+- Margin notes: 79 of 2011; CAP. 96; R.E. 2020.
