@@ -1,0 +1,7 @@
+CHAPTER 294
+NATIONAL METROLOGY (LIQUEFIED PETROLEUM
+GAS) REGULATIONS
+(Section 56)
+(Gazetted 5th March, 2011.)
+- Margin: CAP 294.
+- Margin notes: 12 of 2011; R.E. 2020.
