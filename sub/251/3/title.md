@@ -1,0 +1,5 @@
+CHAPTER 251
+MICRO- INSURANCE (EXEMPTION) ORDER
+(Section 179)
+[Gazetted 7th May, 2016]
+- Margin notes: 45 of 2016; CAP. 251; R.E. 2020.
