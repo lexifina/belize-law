@@ -1,0 +1,4 @@
+CHAPTER 334
+FOREIGN ENLISTMENT
+[4th November, 1874] Ch. 174, R. L.,
+- Margin notes: CAP. 261; R. E. 1980-1990; 40 of 1963.
