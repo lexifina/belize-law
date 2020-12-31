@@ -1,0 +1,5 @@
+# ANNEX
+Oath of Service
+“I solemnly declare that I will perform my duties as a member of the Board of the Centre, honourably, faithfully, impartially and conscientiously. “I further solemnly declare and promise that I shall have no financial interest in any aspect of the Centre’s operations, including its project activities. Subject to my responsibilities to the Board, I shall not disclose, even after the termination of my functions, any confidential or proprietary information which has been brought to the attention of the Board in connection with the operations of the Centre, or any other confidential information coming to my knowledge by reason of my duties for the Board. “I shall disclose to the Chairman of the Board any interest in any matter under discussion before the Board which may constitute a conflict of interest or which might be incompatible with the requirements of integrity and impartiality expected of a member of the Board and I shall refrain from participating in the work of the Board in relation to such matter.”
+Signed by: Witnessed by:
+Member of the Board Secretary-General of CARICOM
