@@ -1,0 +1,5 @@
+CHAPTER 278
+BELIZE PORTS FREE ZONE (DESIGNATION) ORDER
+(Section 5 (3))
+(Gazetted 21st August, 2004.)
+- Margin notes: 140 of 2004; CAP.278; R.E. 2020.
