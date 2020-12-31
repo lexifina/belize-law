@@ -1,0 +1,5 @@
+CHAPTER 239
+CIVIL AVIATION ACT (COMMENCEMENT) ORDER
+[6th February, 1993.]
+- Margin: CAP 239
+- Margin notes: 23/1993; R.E. 2020.
