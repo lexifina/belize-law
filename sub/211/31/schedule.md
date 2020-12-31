@@ -1,0 +1,6 @@
+# SCHEDULE
+Genus & Species Common Names
+Chrisophyllum cainito Star Apple, Cainito Citrus aurantium Sour Orange Citrus paradisi Grapefruit, Pomelo Citrus reticulata Mandarin, Tangerine Citrus sinensis Sweet Orange Coffea arabica Coffee Eviaboytrya japonica Loquat Eugenia jambos Rose Apple Eugenia uniflora Suriname Cherry Fiscus cariba Higo, Fig. Malpighia glabra Wild Craboo, Barbados
+Cherry Manilkara acbras Raspberry Fiscus indica Cactus Fruit, Nopal Prunus salicina Plum Psiduim cattleianum Strawberry Psiduim guajava Guava, Guayaba Spondias mombin Hog Plum Spondias purpurea Plum, Ciruela Terminalia catapa Almond, Almendro Lycoperscion esculentum Tomato Capsicum sp. Peppers Carica papaya Papaya Achras sapota Sapodilla Theobroma cocoa Cocoa Passiflora edules Passion Fruit Citrullus lunatus Watermelon Cucurbita sp. Squash Cucums Melo Cantaloupe Genus & Species Common Names
+Musa sapientum Banana Zlighia sapida Ackee Anacardium occidentale Cashew Persea americana Avocado Citrus aurantifolia Lime Citrus limon Lemon Fortunella spp. Kumquat Salanum melongena Eggplant Hibiscus esculentu Okra Annona cherimola Tulsib Cherimoya, Pox Annona muricata Soursap Annona squamosa Sweetsap, Custard Apple Averihoa carambola Star Fruit, Carambola Colocarpum mammosum Mammey, Mamey Sapote Casimiroa edulis White Sapote
+Nectarine Peach Pear Grape Almond Pineapple Apple
