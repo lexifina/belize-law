@@ -1,0 +1,6 @@
+CHAPTER 157
+REGISTRATION OF BIRTHS AND DEATHS (FEES)
+RULES
+(section 45)
+[8th May, 1999]
+- Margin notes: 54 of 1999; 38 of 2002; Ch. 122; Ch. 157; S.I. 48 of 2006; S.I. 102 of 2020.
