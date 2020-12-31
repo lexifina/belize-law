@@ -1,0 +1,5 @@
+CHAPTER 210
+FISHERIES OFFICERS (APPOINTMENT) ORDER
+(Section 4)
+[28th October, 1989.]
+- Margin notes: 112 of 1989; 79 of 1990; 29 of 1999; Ch. 174; CAP. 210; R.E. 2003; R.E. 2020.
