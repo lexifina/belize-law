@@ -1,0 +1,5 @@
+CHAPTER 87
+TOWN COUNCILS ACT (COMMENCEMENT) ORDER
+(Section 62)
+[9th October, 1999.]
+- Margin notes: 114 of 1999; Act 29 of 1999; CAP. 87; R.E. 2003; R.E. 2020.
