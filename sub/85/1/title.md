@@ -1,0 +1,6 @@
+CHAPTER 85
+BELIZE CITY COUNCIL ACT (COMMENCEMENT)
+ORDER
+(Section 62)
+[18th February, 1999.]
+- Margin notes: 14 of 1999; Act 1 of 1999; CAP. 85; R.E. 2003; R.E. 2020.
