@@ -1,0 +1,6 @@
+CHAPTER 232
+SAN PEDRO TOWN SEAWARD ROAD (PUBLIC
+ROAD) ORDER
+(Section 7)
+[2nd March, 1991]
+- Margin notes: 34 of 1991; Ch. 195; CAP. 232; R.E. 2020.
