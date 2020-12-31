@@ -1,0 +1,8 @@
+CHAPTER 161
+BELIZEAN NATIONALITY (AMENDMENT) ACT, 2018
+(COMMENCEMENT) ORDER
+(section 8)
+[13th October, 2018] 1. This Order may be cited as the
+BELIZEAN NATIONALITY (AMENDMENT) ACT, 2018 (COMMENCEMENT) ORDER.
+- Margin: Citation.
+- Margin notes: S.I. 67 of 2018.
