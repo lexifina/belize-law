@@ -1,0 +1,4 @@
+CHAPTER 22
+CONSULAR RELATIONS
+[16th November, 1972]
+- Margin notes: CAP.16; R.E. 1980-1990; 9 of 1972.
