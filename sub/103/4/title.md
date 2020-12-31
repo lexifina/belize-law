@@ -1,0 +1,6 @@
+CHAPTER 103
+MISUSE OF DRUGS (INDUSTRIAL HEMP)
+REGULATIONS
+(section 54)
+[17th August, 2019]
+- Margin notes: S.I. 54 of 2019; S.I. 75 of 2020.
