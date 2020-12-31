@@ -1,0 +1,4 @@
+CHAPTER 54
+FISCAL INCENTIVES
+[17th April, 1990]
+- Margin notes: CAP. 45; R.E. 1980-1990; 6 of 1990; 20 of 1996; 19 of 1998; 3 of 2000; 45 of 2002; 26 of 2019.
