@@ -1,0 +1,5 @@
+CHAPTER 210
+FISHERIES REGULATIONS
+(Section 13)
+[1st October, 1977.]
+- Margin notes: Ch. 174; 66 of 1967; 71 of 1978; 24 of 1980; 17 of 1982; 83 of 1982; 44 of 1986; 168 of 1991; 55 of 1993; 143 of 1993; 68 of 1997; 13 of 1999; 66 of 2002; 56 of 2003; 90 of 2003; 103 of 2003; 23 of 2005; 135 of 2005; 1 of 2010; 10 of 2011; 78 of 2011; 54 of 2012; 88 of 2012; 81 of 2019; CAP. 210; R.E. 2003; R.E. 2020.
