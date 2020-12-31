@@ -1,0 +1,5 @@
+CHAPTER 291
+MEAT (POST MORTEM) INSPECTION REGULATIONS
+(section 11)
+[11th April, 1970]
+- Margin notes: S.I. 20 of 1970; S.I. 29 of 1971; S.I. 13 of 1985; Ch. 291.
