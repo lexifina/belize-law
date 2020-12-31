@@ -1,0 +1,4 @@
+CHAPTER 2
+IMPERIAL LAWS (EXTENSION)
+[8th March, 1856]
+- Margin notes: CAP.2; R.E. 1980-1990.
