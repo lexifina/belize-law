@@ -1,0 +1,6 @@
+CHAPTER 210
+FISHERIES RESOURCES ACT (COMMENCEMENT)
+ORDER
+(Section 94)
+[10th February, 2020]
+- Margin notes: CAP. 210; R.E.2020; 20 of 2020.
