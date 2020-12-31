@@ -1,0 +1,5 @@
+CHAPTER 228
+POST OFFICE (QUEEN’S SQUARE) REGULATIONS
+(Section 50)
+[29th December, 2001.]
+- Margin notes: 181 of 2001; CAP.228; R.E.2020.
