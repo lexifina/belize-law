@@ -1,0 +1,15 @@
+# SECOND SCHEDULE
+(By-Law 14)
+REQUEST FOR PERMIT TO CARRY OUT
+DEVELOPMENT
+NAME _____________________________________________
+ADDRESS __________________________________________
+TELEPHONE NO. ____________________________________
+PURPOSE OF PERMIT ________________________________
+STREET TO BE AFFECTED ___________________________
+COMMENCEMENT OF WORKS ________________________
+TERMINATION OF WORKS ___________________________
+LOCATION TO BE DEVELOPED _______________________
+SIZE OF LOCATION __________________________________
+TYPE OF DEVELOPMENT TO BE CARRIED OUT _________
+DATE _______________ SIGNATURE ______________
