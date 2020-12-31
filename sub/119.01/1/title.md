@@ -1,0 +1,5 @@
+CHAPTER 119:01
+JUSTICES OF THE PEACE ACT (COMMENCEMENT)
+ORDER
+(Gazetted 23rd February, 2013.)
+- Margin notes: Cap. 119:01; 24 of 2013; R.E. 2020.
