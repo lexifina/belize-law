@@ -1,0 +1,5 @@
+CHAPTER 191
+NATIONAL LANDS (LEASES) (TRANSFER FEE)
+ORDER
+[24th October, 1992]
+- Margin notes: S.I. 137 of 1992; Act 6 of 1992.
