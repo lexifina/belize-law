@@ -1,0 +1,6 @@
+CHAPTER 104
+MONEY LAUNDERING AND TERRORISM
+(PREVENTION) ACT (COMMENCEMENT) ORDER
+(section 87)
+[Gazetted 10th January, 2014]
+- Margin notes: S.I. 5 of 2009; Act No. 18 of 2008.
