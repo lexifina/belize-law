@@ -1,0 +1,4 @@
+CHAPTER 35
+CARIBBEAN EXAMINATIONS COUNCIL
+[16th September, 1972]
+- Margin notes: CAP. 28; R. E. 1980-1990; 6 of 1972; 15 of 1997.
