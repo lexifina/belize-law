@@ -1,0 +1,5 @@
+CHAPTER 55
+INCOME TAX (EXIT CERTIFICATE) RULES
+(Section 94)
+[21st February, 1970]
+- Margin notes: 10 of 1970; CAP. 46; CAP.55; R.E.2020.
