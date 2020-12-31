@@ -1,0 +1,5 @@
+CHAPTER 280
+DESIGNATED PROCESSING AREAS REGULATIONS
+(section 31)
+[2nd November, 2019]
+- Margin notes: S.I. 71 of 2019; S.I. 144 of 2020.
