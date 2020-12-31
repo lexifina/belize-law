@@ -1,0 +1,5 @@
+CHAPTER 30
+PENSIONABLE OFFICES (DECLARATION) ORDER
+(section 2)
+[27th March, 1999]
+- Margin notes: S.I. 35 of 1999; Ch. 22.
