@@ -1,0 +1,6 @@
+CHAPTER 293
+SUPPLIES CONTROL (DISTRIBUTION OF LPG)
+REGULATIONS
+(Section 3)
+[Gazetted 5th December, 2019]
+- Margin notes: 76 of 2010.
