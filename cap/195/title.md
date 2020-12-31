@@ -1,0 +1,4 @@
+CHAPTER 195
+RENT RESTRICTION
+[1st April, 1948]
+- Margin notes: Ch. 164, R.L., 1958; CAP. 158; R.E. 1980-1990.
