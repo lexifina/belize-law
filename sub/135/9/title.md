@@ -1,0 +1,5 @@
+CHAPTER 135
+DEFENCE (RESERVE) REGULATIONS
+(Section 166)
+[15th January, 1983.]
+- Margin notes: 4 of 1983; 44 of 1989; Ch. 106; CAP. 135; R.E. 2020.
