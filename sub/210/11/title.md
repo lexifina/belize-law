@@ -1,0 +1,5 @@
+CHAPTER 210
+FISHERIES (EXPORT OF FISH) REGULATIONS
+(Section 13)
+[27th January, 1968.]
+- Margin notes: 5 of 1968; 9 of 1968; Ch. 174; CAP. 210; R.E. 2003; R.E. 2020.
