@@ -1,0 +1,5 @@
+CHAPTER 222
+WATER INDUSTRY (RATES) (SAN PEDRO) ORDER
+(Section 155)
+[1st March, 1997]
+- Margin notes: CAP. 185; 20 of 1997; CAP. 222; R.E. 2020.
