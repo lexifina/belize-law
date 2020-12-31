@@ -1,0 +1,4 @@
+CHAPTER 27
+NOTIFICATION OF ABSENCE
+[25th September, 1892]
+- Margin notes: Ch. 230, R. L. 1958; CAP. 19; R. E. 1980-1990.
