@@ -1,0 +1,6 @@
+CHAPTER 152
+GAMING CONTROL ACT
+(COMMENCEMENT) ORDER
+(Section 26)
+[12th June, 1999.]
+- Margin notes: 67 of 1999; Act 24 of 1999; Ch. 152; R.E. 2003; R.E. 2020.
