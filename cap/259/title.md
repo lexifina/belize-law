@@ -1,0 +1,4 @@
+CHAPTER 259
+PARTNERSHIP
+[12th December, 1923]
+- Margin notes: Ch. 211; R.L., 1958; CAP. 211; R.E. 1980-1990.
