@@ -1,0 +1,6 @@
+CHAPTER 236
+MERCHANT SHIPS (REGISTRATION) ACT
+(COMMENCEMENT) ORDER
+[Section 114(1)]
+[6th November 2010.]
+- Margin notes: 102 of 2010.
