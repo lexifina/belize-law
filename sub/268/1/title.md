@@ -1,0 +1,5 @@
+CHAPTER 268
+MUTUAL FUNDS ACT (COMMENCEMENT) ORDER
+(section 1)
+[26th June, 1999]
+- Margin notes: S.I. 72 of 1999; Act 12 of 1999.
