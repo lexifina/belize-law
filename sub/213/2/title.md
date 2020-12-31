@@ -1,0 +1,6 @@
+CHAPTER 213
+FOREST (PROTECTION OF TREES)
+REGULATIONS
+(Section 5)
+[Gazetted 5th June, 2010.]
+- Margin notes: 49 of 1992; CAP. 213; R.E. 2020; 62 of 2010.
