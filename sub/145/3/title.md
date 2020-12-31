@@ -1,0 +1,7 @@
+CHAPTER 145
+DISASTER PREPAREDNESS AND RESPONSE
+(SHELTER) BY-LAWS
+(Section 31(3))
+[2nd September, 2000.]
+- Margin: CAP 145. CAP 145.
+- Margin notes: R.E. 2003; 81 of 2000; Act 10 of 2000; R.E. 2020.
