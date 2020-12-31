@@ -1,0 +1,5 @@
+CHAPTER 228
+POST OFFICE (POSTAL AGENCY) REGULATIONS
+(Section 50)
+[16th March, 1968.]
+- Margin notes: Ch. 187; 13 of 1968; 39 of 1975; 56 of 1982; CAP.228; R.E.2020.
