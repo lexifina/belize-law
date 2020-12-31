@@ -1,0 +1,6 @@
+CHAPTER 23
+DIPLOMATIC PRIVILEGES (INTER-AMERICAN
+DEVELOPMENT BANK) ORDER
+(Sections 3, 5 and 6)
+[Gazetted 11th December, 1993]
+- Margin notes: 134 of 1993; Ch. 17; CAP. 23; R.E. 2020.
