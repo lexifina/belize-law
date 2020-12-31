@@ -1,0 +1,70 @@
+# APPENDIX B
+PART I
+Fees of Court in Civil Appeals
+To Be Paid to the Registrar of the Court of Appeal under
+Order II Rule 29
+$ ¢
+1. On filing notice of appeal against a final judgment or decision, entering the appeal for hearing and on judgment thereunder, an inclusive fee of ....................................................... 30.00
+2. On filing respondent’s notice of intention to contend that decision of court below be varied ...... 15.00
+3. For entering a special case, case stated, point of law or demurrer for argument, entering same for hearing and on judgment thereunder, an inclusive fee of ....................................................... 20.00
+4. On filing notice of appeal against an interlocutory order or decision, entering the appeal for hearing and on judgment thereunder, an inclusive fee of................................................... 15.00
+5. On making any application not otherwise specifically provided for, and for filing judgement or order thereunder, an inclusive fee of ......................................................................... 15.00
+6. On filing bond to secure costs of appeal .................. 7.50 7. On filing motion for leave to appeal to Privy Council ................................................................... 10.00
+8. On filing every bond where the appeal to Privy Council ..................................................................... 7.50
+9. On filing order for leave to appeal to Privy Council ................................................................... 10.00
+10. On appointment to settle record on appeal to Privy Council .......................................................... 10.00
+11. On sealing record on appeal to the Privy Council 5.00
+12. On filing every document or exhibit for which no special fee is provided ......................................... 7.50
+13. On taxation of bill of costs, including certificate. 20.00
+14. On certifying any document as an office copy ......... 5.00
+15. If in a foreign language, the actual cost of marking and examining the copy, and in addition, for marking and sealing the copy as an office copy ................................................................ 5.00
+16. For an office copy of a plan, map, section, drawing, photograph or diagram, the actual cost of making and examining the copy, and, in addition, for marking and sealing the copy as an office copy ................................................................ 5.00
+17. For a copy of reasons for judgement of a judge or a court, per folio of 100 words ............................. 1.00
+But with a minimum fee, for one set of reasons, of .......................................... 5.00 And with a maximum fee, for one set of reasons, of ........................................ 50.00
+18. For a copy of a report of a Registrar, per folio of 100 words ........................................................................ 1.00
+19. On perusing and allowing by a judge or Registrar of any bond ............................................... 5.00
+20. On sealing a writ of subpoena not exceeding three persons............................................ 5.00
+21. For a certificate of a Registrar for which no special fee is provided ......................................... 5.00
+22. On obtaining appointment for examination of a witness before an officer of the Court. ................................................. 5.00
+23. In respect of every witness examined by an officer or other person in his office, for each hour or part of an hour .............................. 10.00
+24. For an examination of a witness away from the office of the examiner, the reasonable travelling and other expenses in addition to the fee chargeable under item 23
+25. For making every search. ......................................... 5.00
+26. For an office copy of any document filed in the Registry per folio of 100 words, or part thereof ............................................................... 1.00
+PART II
+Fees Payable to Court from which Appeal is Brought under
+Order II Rule 29
+$ ¢
+1. On office copies of any document to be included in record including judge’s notes of evidence, for the first folio to consist of 100 words ................ 1.00
+2. On certifying any document as an office copy ......... 5.00
+3. Transcript of shorthand writers’ notes, such fee as may be determined by the Registrar. The fees to be taken in the offices of the Sheriff, Marshal or a Deputy Marshal in respect of any proceeding or act are the same as those which, by the practice of the Supreme Court, are taken or by law are authorised or required to be taken by the Sheriff, Marshal or Deputy Marshal in respect of a like proceeding or act in a cause pending in that court.
+PART III
+Witnesses’, Interpreters’, Special Commissioners’ and
+Examiners’ Fees
+UNDER ORDER II RULE 31
+SUBSISTENCE ALLOWANCES PAYABLE TO
+WITNESSES
+1. Subject to the provisions of this Part, a subsistence allowance shall be paid to a witness at the following rate,
+(a) in the case of a professional man or a person who is earning at a rate in excess of $4,800.00 per annum, $5.00 per hour but not exceeding $15.00 per day;
+(b) in all other cases, at the rate prescribed by the rules of the Supreme Court.
+2. No allowance shall be paid in any criminal proceeding to a witness who is an officer in the public service other than an hourly or daily paid employee.
+3. A subsistence allowance shall only be paid to a witness in respect of the period during which he is necessarily detained and which is reasonably spent in travelling to and from the place where the Court is sitting.
+4. No additional subsistence allowance shall be payable to a witness who gives evidence in more than one case on the same day.
+5. By order of the Court a qualifying fee may be allowed to a witness in a proper case at the same rate as would be allowed to him for attending the Court.
+Remuneration of Interpreters
+6. Interpreters shall be paid at the rate prescribed by the rules of the Supreme Court.
+No remuneration will be paid in any criminal proceeding to an interpreter who is a member of the Public Service.
+The Registrar may increase the scales of remuneration prescribed in this Part if, in his opinion, strict adherence to such scales would cause undue hardship.
+Travelling Allowances payable to witnesses, Special
+Commissioners and Assessors
+7. Subject to the provisions of this Part, a witness, special commissioner or assessor who travels by air, or other public conveyance, shall be entitled to a refund of the actual fare paid by him.
+8. If the journey cannot be reasonably performed by air, or other public conveyance, a witness, special commissioner or assessor may use his own mode of transport and, in such case, shall be paid a travelling allowance at the following rate,
+(a) if motor transport is used, 20 cents per mile or part thereof;
+(b) if motor-cycle transport is used, 10 cents per mile or part thereof;
+(c) if cycle transport is used, 5 cents per mile or part thereof.
+9. If a witness, special commissioner or assessor conveys another person who is a witness, special commissioner or assessor in or on his own conveyance, the rate of allowance payable to him in terms of paragraph 8–
+(a) of this rule shall be increased by an additional 5 cents per mile or part thereof in respect of each person so conveyed.
+10. A witness, special commissioner or assessor who travels in or on the conveyance of another person who is a witness, special commissioner or assessor shall not be entitled to any travelling allowance. 11. No travelling allowance shall be paid to a witness, special commissioner or assessor who resides within two miles of the place at which the Court is sitting.
+12. When two or more modes or routes of travelling are reasonably available to a witness, special commissioner or assessor, the travelling allowance payable to such person shall be at the rate for travelling by the mode or route which entails the least cost.
+Remuneration of Special Commissioners and Assessors
+13. A special commissioner or assessor shall be remunerated at the rate of $5.00 per hour or part thereof, but his remuneration shall not exceed $25.00 per day.
+- Margin notes: S.I. 91 of 1982; S.I. 91 of 1982.
