@@ -1,0 +1,5 @@
+CHAPTER 280
+EXPORT PROCESSING ZONES (SOCIAL FEE) ORDER
+(section 18)
+[21st June, 2010]
+- Margin notes: S.I. 65 of 2010.
