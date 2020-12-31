@@ -1,0 +1,4 @@
+CHAPTER 21:02
+CHEMICAL WEAPONS (PROHIBITION)
+[15th July, 2006]
+- Margin notes: 5 of 2006; S.I. 21 of 2015.
