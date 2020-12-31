@@ -1,0 +1,4 @@
+CHAPTER 271
+PROTECTED CELL COMPANIES
+[1st July, 1999]
+- Margin notes: 14 of 1999; S.I. 73 of 1999.
