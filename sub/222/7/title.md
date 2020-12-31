@@ -1,0 +1,6 @@
+CHAPTER 222
+WATER INDUSTRY (AREAS OF WATER SUPPLY)
+ORDER
+(Section 155)
+[8th May, 1971]
+- Margin notes: Ch. 185; 20 of 1971; 24 of 1975; 40 of 1976; 65 of 1977; 67 of 1978; 70 of 1978; 51 of 1987; 110 of 1989; 31 of 1990; CAP. 22; R.E. 2020.
