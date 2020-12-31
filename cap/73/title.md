@@ -1,0 +1,4 @@
+CHAPTER 73
+LOAN (UNITED KINGDOM)
+[16th May, 1984]
+- Margin notes: CAP. 65E; R.E. 1980-1990; 5 of 1984.
