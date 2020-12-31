@@ -1,0 +1,4 @@
+CHAPTER 34
+BELIZE SCHOLARSHIP
+[28th October, 1944]
+- Margin notes: Ch. 78, R. L. 1958; CAP. 27; R. E. 1980-1990; 40 of 1963.
