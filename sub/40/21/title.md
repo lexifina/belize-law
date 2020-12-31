@@ -1,0 +1,5 @@
+CHAPTER 40
+REMOVAL OF REFUSE (BELMOPAN) REGULATIONS
+(section 132)
+[23rd October, 1993]
+- Margin notes: 112 of 1993; Ch. 31.
