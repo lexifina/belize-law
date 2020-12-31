@@ -1,0 +1,4 @@
+CHAPTER 158
+STATISTICAL INSTITUTE OF BELIZE
+[1st April, 2007]
+- Margin notes: 9 of 2006; S.I. 1 of 2007; S.I. 20 of 2013; 18 of 2012.
