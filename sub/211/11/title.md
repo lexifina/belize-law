@@ -1,0 +1,8 @@
+CHAPTER 211
+BELIZE AGRICULTURAL HEALTH AUTHORITY
+(BIOLOGICAL RESIDUES) (CONTROL)
+REGULATIONS
+(Section 86(1) (i), (ee), and (aaa))
+[29th December, 2001.]
+- Margin: CAP 211.
+- Margin notes: 183 of 2001; R.E. 2020.
