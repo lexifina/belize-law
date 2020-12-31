@@ -1,0 +1,5 @@
+CHAPTER 31
+PUBLIC AUTHORITIES PROTECTION
+[17th November, 1884]
+- Margin: R. L 1958.
+- Margin notes: Ch. 229; CAP. 24; R. E. 1980-1990.
