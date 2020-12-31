@@ -1,0 +1,5 @@
+CHAPTER 49
+CUSTOMS (WAREHOUSE RENT) REGULATIONS
+(Section 134 (2))
+[30th December, 1972]
+- Margin notes: 57 of 1972; Ch. 39; CAP. 49; R.E. 2020.
