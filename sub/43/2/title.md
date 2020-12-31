@@ -1,0 +1,6 @@
+CHAPTER 43
+SOCIAL INVESTMENT FUND (FINANCIAL YEAR)
+REGULATIONS
+(section 25(1))
+[1st March, 2010]
+- Margin notes: S.I. 18 of 2010.
