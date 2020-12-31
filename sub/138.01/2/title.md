@@ -1,0 +1,5 @@
+PRIVATE SECURITY AND INVESTIGATION
+SERVICES (CONTROL) ACT
+(Section 19)
+[26th October, 2002]
+- Margin notes: Act 37 of 2002.
