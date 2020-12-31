@@ -1,0 +1,5 @@
+CHAPTER 222
+WATER INDUSTRY (APPOINTED DAY) ORDER
+(Section 3)
+[24th March, 2001]
+- Margin notes: 43 of 2001; Act 1 of 2001; CAP. 222; R.E. 2020.
