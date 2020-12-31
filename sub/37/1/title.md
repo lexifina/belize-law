@@ -1,0 +1,6 @@
+CHAPTER 37
+UNIVERSITY OF BELIZE ACT (COMMENCEMENT)
+ORDER
+(Section 35)
+[16th September, 2000.]
+- Margin notes: 91 of 2000; Act 19 of 2000; CAP. 37; R.E. 2020.
