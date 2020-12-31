@@ -1,0 +1,7 @@
+CHAPTER 85
+BELIZE CITY COUNCIL (PUBLIC BRIDGES)
+REGULATIONS
+(Sections 61(1) and 62(2))
+[3rd March, 2001.]
+- Margin: CAP 85.
+- Margin notes: 32 of 2001; R.E. 2003; R.E. 2020.
