@@ -1,0 +1,5 @@
+CHAPTER 196
+STRATA TITLES REGISTRATION REGULATIONS
+(section 18)
+[9th April, 1994]
+- Margin notes: S.I. 22 of 1994; S.I. 118 of 2003; S.I. 6 of 2006.
