@@ -1,0 +1,6 @@
+CHAPTER 291
+MEAT (POST MORTEM) (BONELESS MEAT)
+INSPECTION REGULATIONS
+(section 11)
+[16th February, 1985]
+- Margin notes: S.I. 4 of 1985; Ch. 291.
