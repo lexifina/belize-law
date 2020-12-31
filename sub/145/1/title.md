@@ -1,0 +1,7 @@
+CHAPTER 145
+DISASTER PREPAREDNESS AND RESPONSE ACT
+(COMMENCEMENT) ORDER.
+(Section 37)
+[2nd September, 2000.]
+- Margin: CAP 145.
+- Margin notes: R.E. 2003; 79 of 2000; Act 10 of 2000; CAP. 145; R.E. 2020.
