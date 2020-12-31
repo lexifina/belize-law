@@ -1,0 +1,4 @@
+CHAPTER 154
+SLAUGHTER OF ANIMALS
+[3rd August, 1968]
+- Margin notes: CAP. 119; R.E. 1980-1990; 12 of 1968; 13 of 1981; 22 of 1987.
