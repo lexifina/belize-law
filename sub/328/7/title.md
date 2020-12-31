@@ -1,0 +1,6 @@
+CHAPTER 328
+ENVIRONMENTAL PROTECTION (HAZARDOUS
+WASTE) REGULATIONS
+(Sections 7, 26, 44 and 45)
+(Gazetted 8th August, 2009.)
+- Margin notes: CAP. 328; R.E. 2020; 100 of 2009.
