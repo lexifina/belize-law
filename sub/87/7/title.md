@@ -1,0 +1,6 @@
+CHAPTER 87
+TOWN COUNCIL (SAN IGNACIO) (ALTERATION OF
+BOUNDARIES) ORDER
+(Sections 2 and 63)
+[24th October, 1981.]
+- Margin notes: 86 of 1981; Ch. 136; CAP. 87; R.E. 2003; R.E. 2020.
