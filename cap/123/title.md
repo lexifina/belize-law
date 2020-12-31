@@ -1,0 +1,4 @@
+CHAPTER 123
+FIRE INQUIRIES
+[30th May, 1898]
+- Margin notes: Ch. 15, R.L., 1958; CAP. 76; R.E. 1980-1990; 40 of 1963; 1 of 1969; 10 of 1969; 42 of 1999.
