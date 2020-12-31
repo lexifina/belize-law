@@ -1,0 +1,2 @@
+# SCHEDULE
+All that piece or parcel of land situate near the village of Libertad commencing at a point approximately 2,100 feet on an approximate true bearing of N 56º W from the North west corner of the Police Compound in Libertad thence on an approximate true bearing of S 31º W for a distance of 150 feet then on an approximate true bearing of N 59º W for a distance of 180 feet then on an approximate true bearing of N 31º E for a distance of 150 feet then on an approximate true bearing of S 59º E for a distance of 180 feet back to the starting point.
