@@ -1,0 +1,6 @@
+CHAPTER 65
+TOWNS PROPERTY FEE (VALUATION OFFICER)
+(APPOINTMENT) ORDER
+(Section 2)
+[25th January, 1992.]
+- Margin notes: 10 of 1992; Ch. 52; CAP. 65; R.E. 2020.
