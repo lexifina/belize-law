@@ -1,0 +1,6 @@
+CHAPTER 263
+BANKS AND FINANCIAL INSTITUTIONS
+(FEES) REGULATIONS
+(section 8(2))
+[1st January, 2011]
+- Margin notes: S.I. 118 of 2010.
