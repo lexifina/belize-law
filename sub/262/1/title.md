@@ -1,0 +1,7 @@
+CHAPTER 262
+CENTRAL BANK OF BELIZE (SPECIFIED PROJECTS)
+ORDER
+(Section 41(4))
+[Gazetted 29th April, 2000.]
+- Margin: CAP 262.
+- Margin notes: 45 of 2000; R.E.2020.
