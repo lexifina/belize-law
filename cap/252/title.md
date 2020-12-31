@@ -1,0 +1,4 @@
+CHAPTER 252
+IMPERIAL LAWS (EXTENSION)
+[21st August, 2000]
+- Margin notes: 12 of 2000; S.I. 77 of 2000.
