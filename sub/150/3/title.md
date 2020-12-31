@@ -1,0 +1,6 @@
+CHAPTER 150
+INTOXICATING LIQUOR LICENSING (RESTRICTION)
+(PUNTA GORDA) ORDER
+Section 10(1)(c)(ii)
+(Gazetted 9th February, 2008.)
+- Margin notes: 11 of 2008; 26 of 2008; CAP.150; R.E.2020.
