@@ -1,0 +1,6 @@
+CHAPTER 232
+NEW CHIAL NEGROMAN ROAD (PUBLIC ROAD)
+ORDER
+(Section 7)
+[17th March, 1990]
+- Margin notes: 29 of 1990; Ch. 195; CAP. 232; R.E. 2020.
