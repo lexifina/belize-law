@@ -1,0 +1,4 @@
+CHAPTER 254
+INDUSTRIAL DESIGNS
+[5th June, 2001.] 13 of 2000.
+- Margin notes: S.I. 11 of 2001.
