@@ -1,0 +1,6 @@
+CHAPTER 251
+INSURANCE (ELECTRONIC ACCOUNTS AND
+FORMS) REGULATIONS
+(Section 178)
+[Gazetted 27th January, 2018]
+- Margin notes: CAP. 251; R.E. 2020; 9 of 2018.
