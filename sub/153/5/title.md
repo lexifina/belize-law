@@ -1,0 +1,5 @@
+CHAPTER 153
+RABIES CONTROL (STANN CREEK) REGULATIONS
+(Section 17)
+[15th May, 1971]
+- Margin notes: Act 25 of 1971; Ch. 115; CAP. 153; R.E. 2020.
