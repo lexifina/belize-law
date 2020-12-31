@@ -1,0 +1,4 @@
+CHAPTER 186
+LAND REFORM (SECURITY OF TENURE)
+[1st January, 1961]
+- Margin notes: R.E. 1980-1990; 9 of 1962; 40 of 1963.
