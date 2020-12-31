@@ -1,0 +1,4 @@
+CHAPTER 140
+PROPERTY PROTECTION (FIRE)
+[31st January, 1894]
+- Margin notes: Ch. 161; R.L., 1958; CAP. 111; R.E. 1980-1990; 40 of 1963; S.I. 44 of 1966.
