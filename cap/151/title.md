@@ -1,0 +1,4 @@
+CHAPTER 151
+LOTTERIES CONTROL
+[15th April, 1954]
+- Margin notes: Ch. 169, R.L. 1958; CAP.118; R.E. 1980-1990; 10 of 1962; 19 of 1963; 40 of 1963; 16 of 1966; 14 of 1982; 8 of 1987; 22 of 1987; 12 of 1992; 42 of 1999; S.I. 54 of 1993; 31 of 2005; 17 of 2010.
