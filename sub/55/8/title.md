@@ -1,0 +1,4 @@
+CHAPTER 55
+INCOME TAX (DEDUCTION FROM EMOLUMENTS)
+- Margin: CAP 55.
+- Margin notes: Ch. 38; Ch. 46; R.E.2020.
