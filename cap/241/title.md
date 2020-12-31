@@ -1,0 +1,4 @@
+CHAPTER 241
+CINEMATOGRAPHS
+[7th November, 1919]
+- Margin notes: Ch.63; R.L., 1958; CAP.197; R.E.1980-1990; 38 of 1963; 3 of 1966; 15 of 2004; S.I.44 of 1966.
