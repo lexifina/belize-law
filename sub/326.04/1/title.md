@@ -1,0 +1,7 @@
+CHAPTER 326:04
+REFRIGERATION TECHNICIANS (LICENSING) ACT
+(COMMENCEMENT) ORDER
+(section 29)
+(Gazetted 3rd July, 2010.)
+- Margin: No.
+- Margin notes: 66 of 2010.
