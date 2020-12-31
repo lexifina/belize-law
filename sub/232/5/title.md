@@ -1,0 +1,5 @@
+CHAPTER 232
+BOLTON BANK ROAD (PUBLIC ROAD) ORDER
+(Section 7)
+[14th July, 1990]
+- Margin notes: 78 of 1990; Ch. 195; CAP. 232; R.E. 2020.
