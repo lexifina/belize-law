@@ -1,0 +1,5 @@
+CHAPTER 151
+LOTTERIES CONTROL REGULATIONS
+(section 27)
+[1st April, 2011]
+- Margin notes: S.I. 88 of 2011; S.I. 166 of 2020.
