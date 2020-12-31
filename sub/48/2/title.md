@@ -1,0 +1,4 @@
+CHAPTER 48
+[23rd October, 1999.]
+- Margin: CUSTOMS (CARICOM PREFERENCE) REGULATIONS (Section 4)
+- Margin notes: CAP.38; R.E.1980-1990; 123 of 1999; CAP.48; R.E.2020.
