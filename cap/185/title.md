@@ -1,0 +1,4 @@
+CHAPTER 185
+LAND ADJUDICATIONS
+[20th April, 1999]
+- Margin notes: 27 of 1992; S.I. 46 of 1999.
