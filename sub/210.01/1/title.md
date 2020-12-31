@@ -1,0 +1,4 @@
+CHAPTER 210:01
+HIGH SEAS FISHING ACT (COMMENCEMENT) ORDER
+(Gazetted 8th November, 2013)
+- Margin notes: 89 of 2013; Ch. 210:01; R.E. 2020.
