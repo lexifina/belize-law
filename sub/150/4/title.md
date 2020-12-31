@@ -1,0 +1,6 @@
+CHAPTER 150
+INTOXICATING LIQUOR LICENSING (RESTRICTION)
+(BELIZE CITY) ORDER
+Section 10(1)(c)(ii)
+(Gazetted 11th December, 2010.)
+- Margin notes: 117 of 2010; CAP.150; R.E.2020.
