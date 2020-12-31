@@ -1,0 +1,4 @@
+CHAPTER 129
+NOTARIES PUBLIC
+[3 June, 1867]
+- Margin notes: Ch. 19; R.L., 1958; CAP. 79; R.E. 1980-1990; 40 of 1963.
