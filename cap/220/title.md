@@ -1,0 +1,4 @@
+CHAPTER 220
+WILDLIFE PROTECTION
+[2nd January, 1982]
+- Margin notes: CAP. 181; R.E. 1980-1990; 4 of 1981; 32 of 1988; 29 of 1990; 42 of 1999; S.I. 3 of 1982; S.I. 12 of 1982.
