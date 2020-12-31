@@ -1,0 +1,6 @@
+CHAPTER 278
+COMMERCIAL FREE ZONE
+(BENQUE VIEJO) (DESIGNATION) ORDER
+(Section 6 (2))
+[18th January, 2003.]
+- Margin notes: 9 of 2003; CAP. 278; R.E. 2020.
