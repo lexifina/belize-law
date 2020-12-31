@@ -1,0 +1,6 @@
+CHAPTER 291
+SLAUGHTERHOUSE
+(HYGIENIC PRACTICES) REGULATIONS
+(section 11)
+[4th April, 1970]
+- Margin notes: S.I. 18 of 1970; S.I. 31 of 1971; S.I. 52 of 1971; S.I. 23 of 1985; Ch. 219.
