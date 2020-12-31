@@ -1,0 +1,6 @@
+CHAPTER 220
+COCKSCOMB BASIN (CLOSED AREA FOR HUNTING)
+REGULATIONS
+(Section 11)
+[8th December, 1984.]
+- Margin notes: 94 of 1984; 127 of 1990; Ch. 181; R.E. 2003; Ch. 220; R.E. 2020.
