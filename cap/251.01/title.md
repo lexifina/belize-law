@@ -1,0 +1,4 @@
+CHAPTER 251:01
+DEPOSIT INSURANCE
+[1st July 2020]
+- Margin notes: CAP. 251:01; 2 of 2020; S.I. 87 of 2020.
