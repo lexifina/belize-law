@@ -1,0 +1,6 @@
+CHAPTER 293
+SUPPLIES CONTROL (DISTRIBUTION OF RICE)
+(REPEAL) REGULATIONS
+(Section 3)
+[Gazetted 2nd September 2017.]
+- Margin notes: 63 of 2017.
