@@ -1,0 +1,6 @@
+CHAPTER 271
+PROTECTED CELL COMPANIES ACT
+(COMMENCEMENT) ORDER
+(section 29)
+[26th June, 1999]
+- Margin notes: S.I. 73 of 1999; Act 14 of 1999.
