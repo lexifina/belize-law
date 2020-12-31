@@ -1,0 +1,5 @@
+CHAPTER 285:03
+TIMESHARE ACT (COMMENCEMENT) ORDER
+(Section 29)
+[28th March, 2009]
+- Margin notes: 44 of 2009.
