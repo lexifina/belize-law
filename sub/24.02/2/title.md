@@ -1,0 +1,5 @@
+CHAPTER 24:02
+INTERNATIONAL FOUNDATIONS REGULATIONS
+(Section 127)
+(Gazetted 9th October, 2010.)
+- Margin notes: CAP. 24:02; 96 of 2010.
