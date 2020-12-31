@@ -1,0 +1,5 @@
+CHAPTER 232
+CHAA CREEK ROAD (PUBLIC ROAD) ORDER
+(Section 7)
+[17th March, 1990]
+- Margin notes: Ch. 195; 28 of 1990; CAP. 232; R.E. 2020.
