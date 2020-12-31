@@ -1,0 +1,6 @@
+CHAPTER 4
+CHIEF OF STAFF (MINISTRY OF DEFENCE)
+(DESIGNATION) ORDER
+(Section 107(1))
+[3rd February, 1990]
+- Margin notes: 5 of 1990; CAP. 4; R.E. 2020.
