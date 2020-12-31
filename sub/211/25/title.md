@@ -1,0 +1,6 @@
+CHAPTER 211
+BELIZE AGRICULTURAL HEALTH AUTHORITY
+(SWINE FEVER STATUS) REGULATIONS
+(section 86 (1)(tt) and (2))
+[Gazetted 28th April, 2007.]
+- Margin notes: CAP. 211; R.E. 2020; 46 of 2007.
