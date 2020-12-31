@@ -1,0 +1,7 @@
+CHAPTER 64
+STAMP DUTIES (EXEMPTION) (SOCIAL
+INVESTMENT FUND) ORDER
+(Section 74 (4))
+[19th April, 1997.]
+- Margin: CAP 64.
+- Margin notes: Ch.51; 33 of 1997.
