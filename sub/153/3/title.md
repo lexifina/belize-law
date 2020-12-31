@@ -1,0 +1,5 @@
+CHAPTER 153
+RABIES CONTROL (BELIZE CITY) REGULATIONS
+(Section 19)
+[6th October, 1976]
+- Margin notes: Act 55 of 1976; Ch. 115; CAP. 153; R.E. 2020.
