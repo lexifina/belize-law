@@ -1,0 +1,4 @@
+CHAPTER 67
+BANANA INDUSTRY LOAN
+[12th April, 1980]
+- Margin notes: CAP. 54; R.E. 1980-1990; 5 of 1980.
