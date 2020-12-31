@@ -1,0 +1,4 @@
+CHAPTER 310
+BUILDING SOCIETIES
+[25th March, 1912]
+- Margin notes: Ch. 153; R. L. 1958; CAP. 242; R. E. 1980-1990; 40 of 1963; 1 of 1969; 18 of 1982; 22 of 1987.
