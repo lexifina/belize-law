@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (BELIZE DIVE HAVEN
+RESORT AND MARINA LTD) ORDER
+(Section 4)
+(Gazetted 5th September, 2020.)
+- Margin notes: CAP. 54; R.E. 2020; 127 of 2020.
