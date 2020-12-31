@@ -1,0 +1,6 @@
+CHAPTER 85
+BELIZE CITY COUNCIL (ACCOUNTING)
+REGULATIONS
+(Section 23 and 62(2))
+[26th September, 1964.]
+- Margin notes: 39 of 1964; 34 of 1965; CAP. 85; R.E. 2003; R.E. 2020; 17 of 2009.
