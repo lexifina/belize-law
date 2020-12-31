@@ -1,0 +1,6 @@
+# SCHEDULE
+[section 2]
+Gang-Related Activity
+Serious Offences
+1. Possession of imitation firearms in pursuance of any criminal offence 2. Theft of a motor vehicle 3. Arson 4. Handling stolen goods 5. Gang membership 6. Coercing or encouraging gang membership 7. Preventing gang member from leaving gang 8. Participation in criminal activity in association with gang 9. Possession of bullet-proof vest, firearm or ammunition for benefit of gang 10. Harbouring or concealing gang members 11. Recruiting gang members 12. Threatening to publish with intent to extort 13. Demanding money with menaces Murder 14. 15. Shooting or wounding with intent to do harm, wounding, or grievous bodily harm 16. Robbery, robbery with a firearm 17. Aggravated assault with use of firearm 18. Possession and use of a firearm or ammunition with intent to endanger life 19. Possession of a firearm or ammunition without a licence 20. Possession of a Controlled Drug With Intent to Supply 21. Supplying a controlled drug 22. Rape 23. Kidnapping 24. Kidnapping for ransom 25. Knowingly negotiating to obtain a ransom 26. Aggravated Burglary 27. Aggravated Assault upon a law enforcement officer 28. An attempt to commit any offence listed in this Schedule
+- Margin notes: 6 of 2018.
