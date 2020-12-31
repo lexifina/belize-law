@@ -1,0 +1,5 @@
+CHAPTER 85
+BELIZE CITY (DEFINITION OF BOUNDARIES) ORDER
+(Section 2 and 62)
+[8th February, 1993.]
+- Margin notes: 24 of 1993; Ch. 66; CAP. 85; R.E. 2003; R.E. 2020.
