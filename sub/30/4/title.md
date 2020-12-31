@@ -1,0 +1,5 @@
+CHAPTER 30
+PENSIONABLE OFFICES (DECLARATION) ORDER
+(section 2)
+[7th August, 1993]
+- Margin notes: S.I. 91 of 1993; Ch. 22.
