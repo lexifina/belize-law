@@ -1,0 +1,7 @@
+CHAPTER 177
+INTERNATIONAL CHILD ABDUCTION
+(CONTRACTING STATES) ORDER
+(Section 4)
+[25th September 1993.]
+- Margin: Ch 143A.
+- Margin notes: 98 of 1993; 63 of 1999; CAP. 177; R.E. 2020.
