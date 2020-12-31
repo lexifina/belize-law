@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (SMVNF INVESTMENTS
+LIMITED) ORDER
+(Section 4)
+(Gazetted 11th January, 2020.)
+- Margin notes: CAP. 54; R.E. 2020; 4 of 2020.
