@@ -1,0 +1,5 @@
+CHAPTER 278
+COROZAL FREE ZONES (DESIGNATION) ORDER
+[Sections 5 & 6]
+[15th July, 1995.]
+- Margin notes: 84 of 1995; 127 of 2007; CAP.278; R.E. 2020.
