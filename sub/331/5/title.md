@@ -1,0 +1,6 @@
+CHAPTER 331
+NATIONAL INSTITUTE OF CULTURE AND HISTORY
+RULES
+(section 68)
+(Gazetted 1st May, 2010.)
+- Margin notes: CAP. 331; R.E. 2020; 40 of 2010.
