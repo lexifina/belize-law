@@ -1,0 +1,6 @@
+CHAPTER 42
+SCHOOL TEACHERS’ PENSIONS
+(DESIGNATED SCHOOLS) ORDER
+(section 3)
+[4th October, 1969]
+- Margin notes: S.I. 31 of 1969; S.I. 73 of 1973; S.I. 42 of 1978; S.I. 21 of 1987; S.I. 105 of 2003; Ch. 33; S.I. 69 of 2016.
