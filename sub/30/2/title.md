@@ -1,0 +1,6 @@
+CHAPTER 30
+PENSIONABLE SERVICE (BELIZE
+DEFENCE FORCE) ORDER
+(section 2)
+[8th September, 1990]
+- Margin notes: S.I. 96 of 1990.
