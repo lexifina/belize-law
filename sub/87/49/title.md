@@ -1,0 +1,6 @@
+CHAPTER 87
+SAN PEDRO TOWN COUNCIL (BEACH CONTROL) BY-
+LAWS
+(Section 50 and 63)
+[21st January, 1995]
+- Margin notes: 6 of 1995; Ch. 67; CAP. 87; R.E. 2003; R.E. 2020.
