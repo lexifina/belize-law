@@ -1,0 +1,6 @@
+CHAPTER 267
+INTERNATIONAL BANKING ACT
+(COMMENCEMENT) ORDER
+(section 49)
+[27th July, 1996]
+- Margin notes: S.I. 103 of 1996; Act 11 of 1996.
