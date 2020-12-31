@@ -1,0 +1,6 @@
+CHAPTER 285
+HOTELS AND TOURIST ACCOMMODATION ACT
+(COMMENCEMENT) ORDER
+(section 1)
+[6th September, 1997]
+- Margin notes: S.I. 92 of 1997; Act 12 of 1997.
