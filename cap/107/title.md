@@ -1,0 +1,4 @@
+CHAPTER 107
+PROTECTION AGAINST SEXUAL HARASSMENT
+- Margin: [1st October, 1996]
+- Margin notes: 10 of 1996; S.I. 127 of 1996.
