@@ -1,0 +1,6 @@
+CHAPTER 54
+APPROVED ENTERPRISE (CARIBBEAN PAPER
+COMPANY LIMITED) ORDER
+(Section 4)
+(Gazetted 22nd December, 2018.)
+- Margin notes: CAP. 54; R.E. 2020; 91 of 2018.
