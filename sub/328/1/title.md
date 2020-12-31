@@ -1,0 +1,7 @@
+CHAPTER 328
+ENVIRONMENTAL PROTECTION ACT
+(COMMENCEMENT) ORDER
+(Section 1(2))
+[26th December, 1992.]
+- Margin: Act.
+- Margin notes: 157 of 1992; 22 of 1992; CAP.328; R.E.2020.
