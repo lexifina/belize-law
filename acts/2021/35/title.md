@@ -1,0 +1,11 @@
+No. 35 of 2021
+I assent,
+(H.E. MS. FROYLA TZALAM)
+Governor-General
+11th November 2021
+6th November, 2021.
+AN ACT to amend the Antibiotics Act, Chapter 33 of
+the Substantive Laws of Belize, Revised Edition 2011, to replace the term Director of Health Services with the term Director of Public Health and Wellness; and to provide for matters connected therewith or incidental thereto.
+(Gazetted 11th November, 2021)
+BE IT ENACTED, by and with the advice and consent
+of the House of Representatives and Senate of Belize and by the authority of the same, as follows:
