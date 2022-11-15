@@ -1,0 +1,544 @@
+# APPENDIX C
+Criminal Forms
+ORDER I
+1. These Rules may be cited as the Court of Appeal Rules. Short title.
+2.–(1) In these rules, unless it is expressly provided to the contrary or the Interpretation. context otherwise requires–
+“Act” means the Senior Courts Act;
+“appellant” means the party appealing from a judgment, conviction, sentence or order and includes his legal representative;
+“attorney-at-law” means any person admitted and enrolled as an attorney-at-law of the High Court;
+“Court” means the Court of Appeal established under this Act;
+“court below” means the High Court of Belize;
+“electronic means” means CD ROMs, memory sticks, email, fax or other means of electronic communication of the contents of documents;
+“file” means file in a Registry;
+“judge” includes the presiding officer of any court from which an appeal lies to the Court;
+“magistrate” includes every person exercising jurisdiction in a court of summary jurisdiction;
+“order” includes decree, judgment, sentence or decision of a court below or a judge thereof;
+“party” means any party to the appeal and includes his legal representative;
+“Prison Authority” means the head or person in charge of Her Majesty’s Prisons in Belize and includes his deputy or other officer discharging his duties;
+“proper officer of the court below” means the Registrar of the court from whose order the appeal is brought;
+“record” means the aggregate of papers relating to an appeal (including the pleadings, proceedings, evidence and judgments) and required by these rules to be filed or laid before the Court on the hearing of the appeal; “Chief Registrar” means the Chief Registrar of the Court of Appeal and includes the Registrar and a Deputy-registrar or other officer for the time being discharging the duties of the Chief Registrar;
+“respondent” means–
+(a) in a civil appeal, any party (other than the appellant)
+directly affected by the appeal;
+(b) in a criminal appeal where the Crown is not an appellant,
+the person who under the Act has the duty of appearing for
+the Crown or who undertakes the defence of the appeal.
+(2) The Interpretation Act shall apply to the interpretation of these
+CAP. 1. rules as they apply to the interpretation of an Act.
+3. The forms set out in Appendices A and C to these rules or forms as Use of Forms in
+Appendices A near thereto as circumstances permit, shall be used in all cases to which and C in such forms are applicable.
+Appeals. 4.–(1) Sittings of the Court shall be held at such times as the Chief Justice Times of sittings may, after consultation with the President, direct. and vacation.
+(2) The Court shall not sit on Saturdays and Sundays and shall not sit on days that are public holidays and on such other days as the Chief Justice may, after consultation with the President, direct.
+(3) The Registry of the Court shall be open on every day of the year except on Saturdays, Sundays and all other days appointed to be observed as public holidays from the hours of 8 a.m. to 4 p.m.
+5.–(1) Notice of each sitting shall be published by the Chief Registrar in the
+Notice of Gazette at least one week before the date appointed for the commencement sittings. of the sitting.
+(2) The Chief Registrar shall on the publication of the said notices in the Gazette post up on the notice board of the Court the cause list of the sittings,
+provided that the Court may in its discretion hear any appeal and deal with any other matter whether or not it has been included in such cause list so published.
+(3) This rule shall not apply to the hearing of any matter by a single judge.
+6. In all proceedings before the Court, the Chief Registrar or the Right of Registrar of the High Court, the parties may appear in person or be audience.
+represented by an attorney-at-law.
+7.–(1) The Chief Registrar shall keep separate registers of all civil and Register of appeals brought. criminal appeals brought before the Court including in the criminal appeal
+register notices of application for leave to appeal.
+(2) Each register shall contain particulars of the date on which–
+(a) the notice of appeal or of application for leave to appeal was lodged;
+(b) any interlocutory order was made;
+(c) the record of the appeal was received;
+(d) the appeal was heard;
+(e) judgment was delivered.
+Service of 8. Subject to any provision contained in these rules relating to the documents. service of any particular document–
+(1) Service of the documents mentioned in the first column
+hereunder shall be executed by leaving a true copy thereof in the manner specified in the second column,
+Column 1 Column 2
+(a) all documents required by personal service on the party
+to be served, or his authorised agent, or on
+the person not a party.
+on parties to an (i) action who have not filed an address for service; and
+on a person not a (ii) party to the appeal;
+(b) all documents required by leaving the document at the
+to be served on parties address for service with a person who have an address for resident at or belonging to such service. place; or by registered post to
+such address, in which case, the time of service thereon shall be the time such document would
+be delivered in the ordinary
+course of post.
+(2) If it be made to appear to a judge of the Court of Appeal upon application supported by affidavit that prompt personal service of a document cannot be effected he may make such order for substituted service by advertisement or otherwise as may be just.
+Waiver for non-compliance.
+9. Non-compliance on the part of an appellant in any criminal cause or Waiver for non-
+compliance with matter with these rules or with any rule of practice for the time being in rules. force shall not prevent the further prosecution of his appeal if the Court considers that such non-compliance was not wilful and that it is in the interests of justice that non-compliance be waived. The Court may, in such manner as it thinks right, direct the appellant to remedy such non-compliance and thereupon the appeal shall proceed. The Chief Registrar shall forthwith notify the appellant of any directions given by the Court under this rule where the appellant was not present at the time when such directions were given.
+ORDER II
+CIVIL APPEALS
+Notices of appeal, cross-appeal and preliminary objection
+1.–(1) All appeals shall be brought by notice (hereinafter called “the notice Notice and
+grounds of of appeal”), to be filed together with a copy thereof with the Chief Registrar appeal. which shall set forth the grounds of appeal, state whether the whole or part only of the decision of the court below is complained of (in the latter case specifying such part), state also the nature of the relief sought and the names and addresses of all parties directly affected by the appeal, and be signed by the appellant or his legal representative.
+(2) If the grounds of appeal allege misdirection or error in law, particulars of the misdirection or error shall be clearly stated.
+(3) The grounds of appeal shall set out concisely and under distinct heads the grounds upon which the appellant intends to rely at the hearing of the appeal without any argument or narrative and shall be numbered consecutively.
+(4) No ground which is vague or general in terms or which discloses no reasonable ground of appeal shall be permitted, save the general ground that the judgment is against the weight of the evidence, and any ground of appeal or any part thereof which is not permitted under this rule may be
+struck out by the Court of its own motion or on application by the respondent.
+(5) The appellant shall not without the leave of the Court urge or be
+heard in support of any ground of objection not mentioned in the notice of appeal, but the Court may in its discretion allow the appellant to amend the grounds of appeal upon payment of the fees prescribed for making such amendment and upon such terms as the Court may deem just.
+(6) Notwithstanding the foregoing provisions the Court in deciding
+the appeal shall not be confined to the grounds set forth by the appellant,
+provided that the Court shall not rest its decision on any ground not set
+forth by the appellant unless the respondent has had sufficient opportunity of contesting the case on that ground.
+(7) The Chief Registrar shall send one copy of the notice of appeal to
+the Registrar of the court below.
+Appeal by leave 2.–(1) Where an appeal lies by leave only, any person desiring leave to only. appeal shall apply for leave within twenty-one days, either by notice of
+motion or by summons (whichever is appropriate) and such application shall be made to the Court or to the court below or to the judge who made the order; the period of twenty-one days shall run from the date of the decision against which leave to appeal is sought.
+(2) If leave is granted the appellant shall file a notice of appeal as
+provided by rule 1 of this Order within twenty-one days from the grant of leave and a copy of the order granting leave shall be annexed to the notice of appeal.
+(3) If a respondent intends, upon the hearing of an application
+brought under this rule, to apply for leave to appeal in order to vary the decision of the court below, he shall within seven days of the service upon him of the summons or notice of motion (or within such time as may be prescribed by special order made on application) give written notice of such intention to any parties who may be affected by such contention, and in such notice shall clearly state the reasons on which he intends to rely, and within the same period he shall file a copy of such notice with the Chief Registrar.
+(4) If on the hearing of a motion or summons brought under this rule
+the respondent is given leave to appeal in order to vary the decision of the court below, it shall not be necessary for him to comply with the provisions of rule 5 of this Order.
+(5) Paragraph (3) of rule 5 of this rule shall apply to a notice given
+under paragraph (3) of this rule as it does to a notice under rule 5.
+3.–(1) Subject to this rule, no appeal shall be brought after the expiration of Time limits for
+appealing. twenty-one days from the date of judgment delivered or order made, against which the appeal is brought.
+(2) An appeal shall be deemed to have been brought when the notice of appeal has been filed with the Chief Registrar.
+(3) A judge of the Court may by order extend the time prescribed in paragraph (1) of this rule within which an appeal may be brought, provided an application for this purpose is made within one month of the expiration of the time so prescribed.
+(4) In exceptional circumstances, the Court having power to hear and determine an appeal, may on application extend the time within which an appeal may be brought beyond the period delimited for an application to a judge of the Court under this rule.
+(5) Every application for enlargement of time when made to a judge of the Court shall be made by summons, and when made to the Court shall be by motion. Every summons or notice of motion filed shall be supported by an affidavit setting forth good and substantial reasons for the application and by grounds of appeal which prima facie show good cause therefor.
+(6) A copy of the summons and supporting affidavit and four copies of the notice of motion and supporting affidavit, in addition to the filed copies, shall be left with the Chief Registrar at the time of filing.
+(7) When time is so enlarged a copy of the order granting such enlargement shall be annexed to the notice of appeal.
+4.–(1) A true copy of the notice of appeal shall be served upon all parties Service of notice
+of appeal. directly affected by the appeal and it shall not be necessary to serve any party not so affected; but the Court may direct notice of appeal to be served on all or any parties to the action or other proceeding, or upon any person not a party and in the meantime may postpone or adjourn the hearing of the appeal upon such terms as may be just, and may give such judgment and make such order as might have been given or made if the persons served with such notice had been originally parties.
+(2) A true copy of the notice shall be served upon the respondent within seven days after the original notice has been filed,
+provided that the Court may enlarge or abridge time appointed by the Act or these Rules as the justice of the case may require and any such enlargement or abridgment may be ordered even after the expiration of any time limit imposed hereunder upon such terms as the Court shall deem just.
+5.–(1) If a respondent intends, upon the hearing of an appeal, to contend that Notice by the decision of the court below should be varied, he shall, within fourteen respondent of contention that days after service of the notice of appeal, or within such time as may be judgment should
+prescribed by special order made on application, give written notice of such be varied.
+intention to any parties who may be affected by such contention, and in such notice shall clearly state the reason on which he intends to rely and within the same period he shall file a copy of such notice with the Chief Registrar.
+(2) A copy of such notice shall be included in the record but if the
+record has already been filed, the prescribed number of copies shall be prepared forthwith and left with the Chief Registrar for transmission to the judges.
+(3) The omission to give notice shall not diminish the powers
+conferred by the Act upon the Court but may, in the discretion of the Court, be a ground for an adjournment of the appeal, or for any special order as to costs.
+6.–(1) A notice of appeal or respondent’s notice may be amended by or with Amendment of notice of appeal the leave of the Court at any time. and of respondent’s
+(2) A party by whom a supplementary notice is served under this rule notice.
+shall, within two days after service of the notice, furnish a copy of the notice to the Chief Registrar.
+7.–(1) A respondent intending to rely upon a preliminary objection to the Notice by respondent of hearing of the appeal shall give the appellant three clear days’ notice thereof contention that
+before the hearing setting out the grounds of objection and shall file such judgment should
+notice together with four copies thereof with the Chief Registrar within the be varied.
+same time.
+(2) If the respondent fails to comply with this rule the Court may
+refuse to entertain the objection or may adjourn the hearing thereof at the cost of the respondent or may make such other order as it thinks fit.
+The Record
+8.–(1) The Registrar of the court below shall upon an appeal being brought Settling record of appeal. summon the parties before him to settle the documents (which expression
+shall include any other matter which may form part of a record) to be included in the record and shall, whether any of the parties attend the appointment or not, settle and sign and in due course file a list of such documents.
+(2) The Registrar, as well as the parties, shall endeavour to exclude
+from the record all documents (more particularly such as are merely formal) that are not relevant to the subject matter of the appeal and generally to reduce the bulk of the record as far as practicable, taking special care to avoid duplication of documents and unnecessary repetition of headings and other merely formal parts of documents; but the documents omitted to be copied shall be enumerated in a list at the end of the record.
+(3) If the Registrar or any party objects to the inclusion of a document on the ground that it is unnecessary or irrelevant and the other party insists upon it being included, the document shall be included and the record shall, with a view to the subsequent adjustment of the costs of and incidental to the inclusion of such document, indicate in the index of papers or otherwise the fact that and the party by whom, the inclusion of the document was objected to.
+9. When any question of fact is involved in an appeal, the evidence Evidence. taken in the court below bearing on such question shall, subject to any special order of the Court, be brought before the Court as follows,
+(a) as to any evidence taken by affidavit, by the production of
+office copies of such affidavit;
+(b) as to evidence taken orally, by the production of a copy of
+the judge’s notes certified by the Registrar of the court
+below, or a transcript of the evidence taken by a shorthand
+writer and certified by him, or such other materials as the
+Court may deem expedient.
+10.–(1) Where any notes of proceedings whether in shorthand or long hand Copies of
+proceedings in have been taken by a person employed by any court or taken by the judge of Court below. the court below, copies of such parts of these notes as are required for the
+Appendix B, record of appeal shall be supplied by the Registrar of the court below on
+Fees. payment of the fees prescribed in Appendix B to these rules.
+(2) If no written decision is given by the judge at the time of giving judgment, the transcript or recording of the Court shall be deemed to be the reasons for judgment, which shall be given to the Registrar of the Court below.
+(3) On hearing of an appeal the Court shall have power, if the notes of the judge of the Court below or a transcript of the evidence are not produced, or if there are no such notes or transcript, to hear and determine such appeal upon any other evidence or statement of what occurred before such judge which the Court may deem sufficient.
+11.–(1) Every document or paper required by these rules to be filed or left Filing of record.
+with the Chief Registrar or the Registrar of the court below may be filed electronically or by physical copy.
+(2) If a document or paper is filed by physical copy it shall be legibly
+printed, cyclostyled or typewritten with black ink (excluding carbon copies) upon strong white foolscap paper of good quality with an inner margin of not less than two inches and an outer margin of about half-an- inch, and a space of not less than three-eighths of an inch shall be left between every two lines.
+(3) There shall be an index to the record and every page thereof shall
+be numbered consecutively, and every tenth line on a page shall be numbered in the margin. Correspondence and exhibits shall be arranged together at the end of the record.
+(4) The Chief Registrar or the Registrar of the Court below may
+refuse to file or receive any document not strictly conforming to the requirements of paragraph (1) of this order and the Court may disallow the costs of any such document which has been so filed or received.
+Copy of list of 12.–(1) Any party may apply for and, on payment of the prescribed fee, exhibits. obtain an office copy of the exhibits for the purpose of an appeal to the
+Court or otherwise.
+(2) All original documents tendered in evidence to the Court below
+at the trial shall remain in the custody of the Court below until the record of appeal has been prepared, and shall then be forwarded with the record to the Chief Registrar and shall remain in the custody of the Court until the determination of the appeal,
+provided that the Chief Registrar shall permit a party for the purposes of
+preparing his record to take copies of all such documents and that the Court or Chief Registrar may allow the return of any documents to any party pending the hearing of the appeal and subject to such conditions as it or he may impose.
+Entering appeal. 13.–(1) The appellant shall within three months from the dates when the
+appeal is brought or within such extended time as may be granted by the Court below or the Court–
+(a) file with the Chief Registrar–
+(i) the record;
+(ii) an affidavit of service of the notice of appeal; and
+(b) leave four copies of the record for the use of the judges and
+the Chief Registrar of the Court.
+(2) The Chief Registrar shall thereupon give notice in Civil Form 7 Civil Form. to the respondent of the filing of the record and shall set down the appeal for hearing by entering the same on the proper lists of appeals.
+Withdrawal and non-compliance
+14.–(1) If the appellant files with the Chief Registrar a notice that he desires Withdrawal of to withdraw his appeal, together with a copy thereof, the appeal shall stand appeal. dismissed with costs on the date on which such notice is filed. The appellant at the same time shall serve copies of the notice of withdrawal on all or any of the parties with regard to whom the appellant wishes to withdraw his appeal, and any party so served shall be precluded from laying claim to any costs incurred by him after such service unless the Court shall otherwise order.
+(2) The Chief Registrar shall send one copy of the notice of withdrawal to the Registrar of the Court below.
+15.–(1) It shall be the duty of the Chief Registrar to see that an appellant Default in filing
+record and complies with rule 13 of this Order, and before the conclusion of each documents. general sitting he shall report to the Court any failure on the part of an appellant so to comply and the Court of its own motion may make any such order as it might make upon an application by the respondent under paragraph (2) of this rule.
+(2) If the appellant has failed to comply with the requirements of rule 13 (1) of this Order or any part thereof, the respondent may apply to the Court to dismiss the appeal for want of prosecution and the Court, if satisfied that the appellant has so failed, may dismiss the appeal or make such other order as the justice of the case may require.
+(3) An appellant whose appeal has been dismissed under this rule may apply by notice of motion that his appeal be restored and the Court may in its discretion for good and sufficient cause order that such appeal be restored upon such terms as it may think fit.
+Applications
+Applications to 16.–(1) In any cause or matter pending before the Court a single judge of single Judge. the Court may upon application make orders for–
+(a) giving security for costs to be occasioned by any appeals;
+(b) leave to appeal in forma pauperis;
+(c) a stay of execution on any judgment appealed from pending the determination of such appeal;
+(d) an injunction restraining the defendant in the action from disposing or parting with the possession of the subject matter of the appeal pending the determination thereof;
+(e) extension of time,
+and may hear, determine and make orders on any other interlocutory application.
+(2) Every order made by a single judge of the Court in pursuance of
+this rule may be discharged or varied by any judges of that Court having power to hear and determine the appeal.
+Application to 17.–(1) Applications referred to in rule 16 shall ordinarily be made to a Court below. judge of the Court, but, where this may cause undue inconvenience or delay,
+a judge of the Court below may exercise the powers of a single judge of the Court under that rule.
+(2) The Registrar of the Court below shall send to the Chief Registrar
+one copy of any application made to a judge of the Court below and of the order made thereon.
+Mode of 18.–(1) An application for leave to appeal in forma pauperis may be made application.
+ex parte by affidavit containing the grounds of the application and the order asked for.
+(2) Any other application under these rules shall be made by way of
+summons or motion on notice. Such application shall be supported by affidavit, a copy of which shall be served with the summons or notice of motion.
+(3) Where an application is made ex parte under paragraph (1) of this
+rule, an order may be made requiring any party affected to be served with notice of the application.
+(4) Where an application under these rules is made by summons, an
+order may be made adjourning the hearing into open court.
+(5) Where an application made by summons is heard by the Court, it
+shall be treated as if it were a motion, and it shall be heard in open court.
+19.–(1) An appeal shall not operate as a stay of execution or of proceedings Appeal no stay except by order. under the judgment appealed from, except so far as the court below or the Court may order, and no intermediate act or proceeding shall be invalidated, except so far as the Court may direct.
+(2) On an appeal, interest for such time as execution has been delayed by the appeal shall be allowed unless the Court otherwise orders, and the Chief Registrar may compute such interest without any order for that purpose.
+20.–(1) Before an application for security for costs is made, a written Application for
+security for demand shall be made by the respondent and if the demand is refused or if costs. an offer of security be made by the appellant and not accepted by the respondent, the Court or the Court below shall in dealing with the costs of the application consider which of the parties has made the application necessary.
+(2) An application for security for costs may be made at any time after the appeal has been brought and must be made promptly thereafter.
+(3) An order for security for costs shall direct that in default of the security being given within the time limited therein, or any extension thereof, the appeal shall stand dismissed with costs.
+Form of bond. (4) A bond with sureties for securing the costs of an appeal shall be
+Form 9. in Form 9 of Appendix A.
+Appendix A. Application for 21.–(1) An application for leave to appeal in forma pauperis shall be leave to appeal accompanied by– in forma pauperis.
+(a) an affidavit stating–
+(i) that the appellant is not worth $100 excepting his
+wearing apparel and tools of trade and his interest in
+the subject matter of the intended appeal;
+(ii) that his usual income from all sources does not
+exceed $8.00 a week;
+(b) a certificate of an attorney-at-law that the appellant has
+reasonable grounds of appeal.
+(2) Where an appellant obtains leave to appeal in forma pauperis he shall not be required to lodge security for the costs of the respondent or to pay any registry fees or any fees for copies of the judge’s notes of evidence or the documents required for compiling the record.
+22. An appeal against an interlocutory order shall be heard before not Interlocutory
+appeals. Number less than three judges of the Court. of judges.
+23. If the appellant fails to appear when his appeal is called on for Dismissal of appeal in default hearing the appeal may be struck out or dismissed with or without costs. of appearance.
+24. When an appeal has been struck out owing to the non-appearance of Application to
+the appellant the Court may, on application by the appellant by notice to the re- enter appeal
+Court, if it thinks fit, and on such terms as to costs or otherwise as it may dismissed under
+think just, direct the appeal to be re-entered for hearing; but no application rule 23. under this rule shall be made after the expiration of twenty- one days from the date of the judgment or order sought to be set aside.
+25. If the respondent fails to appear when the appeal is called on for Non-appearance
+hearing the Court may proceed to hear the appeal ex parte. of respondent.
+26.–(1) Where an appeal has been heard ex parte under rule 25 of this Order Application to and any judgment has been given therein adverse to the respondent he may set aside ex parte judgment. apply by motion to the Court to set aside such judgment and rehear the
+appeal and the Court may, if it thinks fit and on such terms as to costs or otherwise as it may deem just, direct the appeal to be re- entered for hearing.
+(2) No application to set aside any judgment or order and re-hear the
+appeal under this rule shall be made after the expiration of twenty-one days from the date of the judgment or order sought to be set aside.
+(3) Any such application shall be by motion accompanied by an
+affidavit setting forth the reasons and grounds for the application and the Court may thereupon in its discretion set aside the judgment or order and order that the appeal be re-heard at such time and upon such conditions as to costs or otherwise as it may think fit.
+Delivery of 27.–(1) The judgments of the Court shall normally be delivered by the judgment.
+judges who heard the appeal but if one or more judges of the Court is not prepared or is otherwise unable to deliver judgment or, in any other case, at the direction of the Chief Justice–
+(a) judgment may be delivered at the sitting of the Court then in progress or at any subsequent sitting of the Court and for the purpose of delivering such judgment the Court may be constituted by one, two or three judges; and
+(b) a judge whether or not present at the hearing of an appeal may deliver the judgment of the Court (being the judgment of all or of the majority present thereat) and may read the reasons for such judgment or for the concurrence or dissent of any judge who was a member of the Court at the hearing.
+(2) The judgments of the Court may be given orally.
+(3) Notwithstanding sub-rule (2), the Court shall, where required under the Time Limit for Judicial Decisions Act to give a written judgment, give that written judgment in accordance with the time limit prescribed under that Act.
+Promulgation of 28. Without prejudice to the generality of the foregoing, the Chief judgment. Registrar may, at the direction of the Chief Justice, promulgate, whether on paper or by electronic means, a judgment of the Court or of any judge sitting as the single judge.
+29. Judgments of the Court shall be enforced by the Court below and a Execution of certificate under the seal of the Court and the hand of the Chief Registrar judgment by
+court be- low. setting forth the judgment shall be transmitted by the Chief Registrar to such other Court, and the latter shall enforce such judgment in terms of the certificate.
+Fees and Costs
+Court fees. 30.–(1) Except as hereinafter provided, the fees prescribed in Appendix B Appendix B shall be charged in respect of the matters to which they are respectively
+Fees. assigned. The fees chargeable under Part I of Appendix B shall be paid to the Chief Registrar and those chargeable under Part II shall be paid to the Registrar of the court below.
+(2) No fees shall be payable by the Crown or any person suing or being sued on behalf of the Crown in respect of any civil appeal to which the Crown or any person so suing or being sued is a party,
+provided that a judgment in favour of the Crown or any person so suing or being sued for costs to be paid by any party, not being the Crown, or any person so suing or being sued, shall, unless the Court otherwise orders, include the amount of any fees which would have been payable if the appeal or suit had been brought or instituted by or against a private person.
+31.–(1) Subject to this rule, the Chief Registrar when assessing the fees for Legal
+practitioner’s professional legal services shall, unless the Court when awarding costs fees. orders otherwise, allow all such costs, charges and expenses as appear to him to have been necessary or proper for the attainment of justice or for the defending of the rights of any party, but except as against the party who incurred them, no costs shall be allowed which appear to the Chief Registrar to have been incurred or increased through over-caution, negligence or mistake, or by payment of special fees to counsel or special charges or expenses to witnesses or other persons, or by other unusual expenses.
+(2) In assessing party and party costs, the Chief Registrar shall also, unless the Court when awarding costs orders otherwise, allow–
+(a) the reasonable fees consequent upon the engagement of counsel,
+provided that he may disallow the fee of more than one counsel in
+unopposed matters and in matters in which counsel has not appeared on the other side,
+(b) in any matter which does not conclude upon the first day, reasonable refreshers for each day subsequent to the first;
+(c) junior counsel’s fee on the basis of two-thirds of the fee allowed to leading counsel (excluding travelling expenses and any special fee allowed to leading counsel) where fees to leading and junior counsel are allowed.
+Fees not charge- 32. The fees to be charged for interpreters, witnesses, special able under rules commissioners and examiners shall be those set forth in Part III of 30 and 31.
+Appendix B. Part III. Appendix B.
+33.–(1) Where the costs of an appeal are allowed they may either be fixed Assessment of by the Court at the time when the judgment is given or may be ordered to be costs.
+assessed.
+(2) The Chief Registrar shall be responsible for the assessment of
+cost.
+(3) Any party who may be dissatisfied with the allowance or
+disallowance by the Chief Registrar, in any bill of costs assessed by him, of the whole or any part of any items, may, at any time before the certificate or allocatur is signed, or such earlier time as may in any case be fixed by the Chief Registrar, deliver to the other party interested therein, and carry in before the Chief Registrar, an objection in writing to such allowance or disallowance, specifying therein by a list, in a short and concise form, the items or parts thereof objected to, and the grounds and reasons for such objections, and may thereupon apply to the Chief Registrar to review the assessment in respect of the same. The Chief Registrar may, if he thinks fit, issue pending the consideration of such objections a certificate of assessment or allocatur for or on account of the remainder of the bill of costs and such further certificate or allocatur as may be necessary shall be issued by the Chief Registrar Officer after his decision upon such objections.
+(4) Upon such application the Chief Registrar shall reconsider and
+review his assessment upon such objections, and he may, if he shall think fit, receive further evidence in respect thereof, and, if so required by either party, he shall state either in his certificate of assessment or allocatur, or by reference to such objection, the grounds and reasons of his decision thereon, and any special facts or circumstances relating thereto. The Chief Registrar may assess the costs of such objections and add them to or deduct them from any sum payable by or to any party to the assessment.
+(5) Any person aggrieved by any order, decision or ruling of the Chief Registrar may apply to the Court to set aside such order, decision or ruling and to make such further order as it may think fit.
+(6) Any application to the Court under paragraph (5) of this rule, shall be by motion accompanied by an affidavit in support and notice in such motion shall be served upon the Chief Registrar and upon all parties having interest therein.
+ORDER III
+APPEALS AGAINST CONVICTION ON INDICTMENT
+Institution of Appeals
+1. A person desiring to appeal to the Court against conviction or
+Obligation on sentence shall commence his appeal by sending to the Registrar of the Court appellant to fill
+up forms of below a notice of appeal or notice of application for leave to appeal or appeal notices notice of application for extension of time within which such notice shall be
+and answer given, as the case may be, in the form of such notices set forth in Form 1 or
+questions 2 in Appendix C, and, in the notice or notices so sent, shall answer the thereon. questions and comply with the requirements set forth thereon, subject to Order I, rule 9. The answers to the questions which an appellant is by this rule required to make in support of his request to be present at the hearing of his appeal shall be deemed to be applications to the Court in such matter.
+Judge’s 2.–(1) The certificate of the judge of the Court below under section 209 certificate under (1)(b) shall be in Form 3 in Appendix C. section 209(1)
+(b).
+(2) The judge of the Court below may, in any case in which he Form 3. considers it desirable to do so, inform the person convicted before or Appendix C. sentenced by him that the case is in his opinion one fit for an appeal to the Court under section 209(1)(b) and may give to such person a certificate to that effect in Form 3 in Appendix C.
+3.–(1) Every notice of appeal or notice of application for leave to appeal or Notices to be
+signed by notice of application for extension of time within which such notice shall be appellant. given shall be signed by the appellant himself, except under paragraphs (4) and (5) of this rule.
+Any other notice required or authorised to be given shall be in writing and signed by the person giving it or by his legal representative. All notices required or authorised to be given shall be addressed to the Registrar of the Court below to be forwarded by him to the Chief Registrar of the Court.
+(2) Where an appellant or applicant is a prisoner in prison it shall be
+sufficient service to deliver the document at the prison to the officer in charge or person appearing to be the officer in charge thereof, who shall cause it to be served on the prisoner.
+(3) Where an appellant or any other person authorised or required to
+give or send any notice of appeal or notice of any application is unable to write, he may affix his mark thereto in the presence of a witness who shall attest it, and thereupon, the notice shall be deemed to be duly signed by such appellant.
+(4) Where, on the trial of a person entitled to appeal, it has been
+contended that he was not responsible according to law for his actions on the ground that he was insane at the time the act was done or the omission made by him, any notice required to be given and signed by the appellant himself may be given and signed by his legal representative.
+(5) In the case of a body corporate, where any notice or other
+document is required to be signed by the appellant himself, it shall be sufficient compliance therewith if such notice or other document is signed by the secretary, clerk, manager or legal representative of such body corporate.
+Time for 4. The time within which a person convicted shall give notice of appeal appealing against or notice of his application for leave to appeal to the Court against his conviction to run
+conviction, shall commence to run from the day on which the verdict of the from verdict.
+judge or jury, as the case may be, was returned, whether the judge of the court of trial shall have passed sentence or pronounced final judgment upon him on that day or not.
+Time for 5. The time within which a person convicted and sentenced, shall give appealing against
+notice of appeal or notice of application for leave to appeal against such sentence to run
+sentence to the Court, shall commence to run from the day on which such from pronouncement sentence shall have been passed upon him by the judge of the court of trial. of sentence.
+6. An application to the Court for an extension of time within which Notice of
+notices may be given, shall be in Form 2 in Appendix C. Every person application for
+making an application for such extension of time, shall send to the Registrar extension of time for appealing. of the Court below together with the proper form of such application, a
+form, duly filled up of notice of appeal, or of notice of application for leave to appeal, appropriate to the ground or grounds upon which he desires to question his conviction or sentence, as the case may be.
+Copies of Proceedings, etc.
+7.–(1) The Registrar of the Court below when he has received a notice of Forwarding of proceedings in appeal or a notice of application for leave to appeal, or a notice of court below to Registrar. application for extension of the time within which under the Act such notice shall be given, shall forward to the Chief Registrar four copies of the proceedings in the Court below and if any record has been made of the summing up or direction of the judge of the Court below, four copies thereof or if no such record has been made, a statement giving to the best of such judge’s recollection the substance of the summing up or direction. He shall also forward the original exhibits in the case as far as practicable and any original depositions, information, inquisition, plea or other documents usually kept by him, or forming part of the record of the Court below.
+(2) One copy of the proceedings and one copy of the summing up shall be sent by the Registrar of the Court below to the Director of Public Prosecutions at the same time as he complies with paragraph (1) of this rule.
+(3) For the purposes of this rule copies of proceedings shall contain,
+(a) the indictment or charge and the plea;
+(b) the verdict, any evidence given thereafter, and the sentence;
+(c) notes of any particular part of the evidence or cross-
+examination relied on as a ground of appeal; and
+(d) such other notes of evidence as the Registrar of the Court
+below or the Chief Registrar may direct to be included in
+the copies of proceedings,
+provided,
+(i) in capital cases, copies of the notes of all the evidence
+shall be supplied; and
+(ii) upon application by either party to an appeal, a single
+judge of the Court or the Court itself may direct that
+copies of any particular part, or the whole, of the
+evidence be supplied to the Court and to the Director
+of Public Prosecutions.
+8.–(1) Where any trial is had with a jury and, by direction of the judge of the Records of
+summing up. Court below, notes in long hand or in shorthand or typewritten or a tape recording shall have been taken of the summing up or direction of the judge and of such parts of the proceedings as the judge of the Court below may consider expedient, such record or a transcription of such tape recording shall be accepted by the Court as accurate unless the Court has reason to doubt its accuracy.
+Where it is provided by the law of Belize that any notes of the summing up or directions of the judge or notes of any part of the proceedings shall be required, such notes shall be accepted by the Court as provided in paragraph
+(1) of this rule.
+(2) Where in such a trial the judge of the Court below does not give any directions for recording any summing up or direction given by him and a shorthand note thereof is not taken under the provisions of any law, his statement giving his recollection of the summing up or direction shall be accepted as accurate unless the Court sees reason to the contrary.
+(3) The shorthand writer shall sign the shorthand note taken by him of any trial or proceedings, or of any part of such trial or proceedings, and certify it to be a complete and correct shorthand note thereof; and such shorthand note shall be kept in such custody as the Registrar of the Court below shall, either specially or generally, direct.
+(4) The shorthand writer shall, on being directed by the Registrar of the Court below, furnish to him for the use of the Court a transcript of the whole, or of any part, of the shorthand note taken by him of any trial or proceedings in reference to which an appellant has appealed under the Act.
+(5) A transcript of the whole or any part of the shorthand note relating to the case of any appellant which may be required for the use of the Court shall be typewritten and verified by the person making the same by a statutory declaration in Form 4 in Appendix C that it is a correct and complete transcript of the whole, or of such part, as the case may be, of the shorthand note purporting to have been taken, signed and certified by the shorthand writer who took it.
+(6) Where no notes in long hand or in short hand have been taken by direction of the judge of the Court below of any other parts of the proceedings required for the purpose of an appeal, the judge of the Court below shall furnish to the Registrar of the Court below his notes of the trial or such part thereof as may be required for such purpose.
+(7) On the application of a party interested in a trial or other proceedings in relation to which a person may appeal the Registrar of the Court below shall direct the shorthand writer to furnish to such party, and to no other person, a transcript of the whole, or of any part of the shorthand note of any such trial or other proceedings, on payment to the proper officer of the Court below of such fees as may be prescribed for copies of proceedings required on appeal in any criminal cause or matter.
+(8) A party interested in an appeal under the Act may obtain from the Registrar of the Court below a copy of the transcript of the whole or of any part of such shorthand note as relates to the appeal on payment to the proper officer of the Court below of such fees as may be prescribed for copies of proceedings required on appeal in any criminal cause or matter.
+(9) For the purpose of this rule, “a party interested” shall mean the prosecutor or the person convicted, or any other person named in, or immediately affected by, any order made by the judge of the Court below, or other person authorised to act on behalf of a party interested, as herein defined; but shall not include the Director of Public Prosecutions, to whom a copy of such transcript shall be furnished free of charge.
+(10) A transcript of the shorthand notes taken of the proceedings at the trial (or a copy of the judge’s notes of the trial) of any appellant shall not be supplied free of charge except by an order of the Court or a judge thereof, upon an application made by an appellant or by his attorney-at- law assigned to him under the Act.
+Judge’s Report
+9.–(1) The Registrar of the Court below shall, if in relation to any appeal the Report of judge
+of Court below. Court directs him to do so, request the judge of the Court below to furnish him with a report in writing, giving his opinion upon the case generally or upon any point arising upon the case of the appellant, and such judge shall furnish it to the Chief Registrar.
+(2) The report of the judge shall be made to the Court, and, the Chief Registrar shall on request, furnish a copy thereof to the appellant and respondent.
+10. When the Registrar of the Court below requests the judge of the Furnishing judge
+of Court below Court below to furnish a report under these rules, he shall send to such with materials in judge a copy of the notice of appeal or notice of application for leave to
+report. appeal or any other document or information which he shall consider material, or which the Court at any time shall direct him to send or with which the judge may request to be furnished by the Registrar, to enable the judge to deal in his report with the appellant’s case generally or with any point arising thereon.
+Copies of documents for use of Appellant or Respondent
+11.–(1) At any time after notice of appeal or notice of application for leave How appellant or
+respondent may to appeal has been given under the Act or these rules, an appellant or obtain from respondent, or the attorney-at-law or other person representing either of Registrar of them, may obtain from the Registrar of the Court below copies of any
+Court below documents (other than notes of proceedings) or exhibits in his possession copies of under the Act or these rules for the purposes of such appeals. Such copies documents or
+exhibits. shall be supplied by the Registrar on payment to the proper officer of the Court below of such fee as may be prescribed for copies of proceedings required on appeal in any criminal cause or matter.
+(2) Where an attorney-at-law is assigned to an appellant under the
+Act, copies of any such documents or exhibits which he may request the Registrar to supply shall without charge be supplied unless the Registrar thinks that they are not necessary for the purpose of the appeal.
+(3) Where an appellant, who is not legally represented, requires from
+the Registrar a copy of any such document or exhibit in his custody for the purposes of his appeal, he may obtain it free of charge, if the Registrar thinks, under all the circumstances, it is desirable or necessary to supply it to him.
+Conduct of Prosecution and Defence
+12.–(1) Whenever the Chief Registrar has received a notice of appeal or a Registrar to re-notice of application for leave to appeal or a notice of application for an quire proper officer of Court extension of time within which such notices shall be given he shall be- low to
+forthwith apply to the Registrar of the Court below for the following furnish him with
+particulars, particulars, etc., of trial.
+(a) name and address of the prosecutor. State names and addresses of counsel for prosecution;
+(b) whether appellant was defended by counsel privately or by counsel at request of Court. Give names and addresses of attorney-at-law for appellant.
+(2) When the Chief Registrar has received a notice of appeal or
+where leave to appeal is granted to any appellant, he shall,
+(a) notify the Director of Public Prosecutions; or
+(b) if the prosecutor is a private person, enquire if he intends to defend the appeal and if the answer is in the negative, so inform the Director of Public Prosecutions.
+(3) It shall be the duty of a prosecutor, who declines to resist an
+appeal and of his attorney-at-law, to furnish to the Chief Registrar and the Director of Public Prosecutions, or either of them, any information, documents, matters and things in his possession or under his control connected with the proceedings against the appellant, which the Chief Registrar or Director of Public Prosecutions may require for the purposes of their duties under the Act.
+Legal Aid to Appellants
+Copies of 13.–(1) The Chief Registrar shall cause to be prepared, in such form as he documents for thinks most convenient, a list of attorneys-at-law who are willing to act as use of Appellant counsel for appellants if and when nominated under the Act.
+or Respondent
+(2) When legal aid is assigned to an appellant, the Court may give such directions as to the stage of the appeal at which such legal aid shall commence.
+(3) The Chief Registrar shall thereupon, subject to any special order of the Court, select from such list an attorney-at-law for the purpose of affording legal aid to an appellant under the directions of the Court, having regard in so doing to the place at which the appellant was tried and the attorney-at-law, if any, who represented the appellant at his trial and the nature of the appeal.
+Proceedings before a single judge
+14.–(1) Where any application has been dealt with by a single judge, the Procedure on
+decision of Chief Registrar shall notify to the appellant the decision in Form 5 in application to Appendix C. In the event of the judge refusing all or any of such
+single judge. applications, the Chief Registrar on notifying such refusal to the appellant shall forward to him Form 6 in Appendix C. If the appellant does not desire to have the application or applications determined by the Court as duly constituted for the hearing of appeals under the Act or does not return within five days to the Chief Registrar Form 6 duly filled up by him, the refusal of his application or applications by such judge shall be final. If the appellant desires that his application or applications shall be determined by the Court as duly constituted for the hearing of appeals under the Act and is not legally represented he may, if the Court give him leave, be present at the hearing and determination by the Court of his application or applications,
+provided that an appellant who is legally represented shall not be entitled to be present without special leave of the Court.
+(2) When an appellant duly fills up and returns within the prescribed time to the Chief Registrar Form 6 expressing a desire to be present at the hearing and determination by the Court of the applications mentioned in this rule, such form shall be deemed to be an application by the appellant for leave to be so present. The Chief Registrar, on receiving the said form, shall take the necessary steps for placing the application before the Court. If the application to be present is refused by the Court, the Chief Registrar shall notify the appellant; and if the application is granted, the Chief Registrar shall notify the appellant and the officer in charge of the prison wherein the appellant is in custody, as provided by these rules. For the purpose of
+constituting a Court the judge who has refused any such application may sit as a member of such Court, and take part in determining such application.
+(3) Except where otherwise provided in these rules, any application
+to the Court may be made by the appellant or respondent, or by an attorney-at-law on their behalf, orally or in writing; but in regard to such applications, if the appellant is unrepresented and is in custody and is not entitled or has not obtained leave to be present before the Court, he shall make any such application by forwarding it in writing to the Chief Registrar who shall take the proper steps to obtain the decision of the Court thereon.
+Notice of 15. Where the Court has, on a notice of application for leave to appeal application for duly served and in Form 1 in Appendix C, given an appellant leave to leave to appeal
+appeal, it shall not be necessary for such appellant to give any notice of deemed to be
+appeal but the notice of application for leave to appeal shall in such case be notice of appeal
+deemed to be a notice of appeal. if application granted.
+Suspension of Orders and Admission to Bail.
+Person in 16.–(1) Where a person has, on his conviction, been sentenced to payment custody in
+of a fine, and in default of payment to imprisonment, and such person default of
+remains in custody in default of payment of the fine, he shall be deemed, for payment of fine.
+purposes of appeal, to be a person sentenced to imprisonment.
+(2) Where any person has been convicted and is thereupon sentenced
+to the payment of a fine and, in default of such payment, to imprisonment, and he intimates to the judge of the Court below that he is desirous of appealing to the Court against his conviction, such judge may, if he thinks right to do so, order such person forthwith to enter into recognisances in such amount, and with or without sureties in such amount, as such judge may think right, to prosecute his appeal and, subject thereto, may order that payment of the fine shall be made at the final determination of his appeal, if it be dismissed, to the Registrar of the Court below, or as the Court may then order. The recognisances under this rule shall be in Forms 7 and 8 in Appendix C.
+The Registrar of the Court below shall forward the recognisances of the appellant and his surety or sureties to the Chief Registrar.
+(3) If an appellant to whom paragraph (2) of this rule applies does
+not serve in accordance with these rules a notice of appeal or of abandonment of his appeal within twenty-one days from the date of his conviction or sentence, the Registrar of the Court below shall report such omission to the Court, which may, after notice in Forms 9 and 10 in Appendix C has been given to the appellant and his sureties, if any, order an estreat of the recognisances of the appellant and his sureties, and the manner of such estreat shall be that provided for estreating recognisances, and may issue a warrant for the apprehension of the appellant and may commit him to prison in default of payment of his fine, or may make such other order as it may think right.
+(4) An appellant who has been sentenced to the payment of a fine and has paid it or part thereof in accordance with such sentence, shall, in the event of his appeal being successful, be entitled, subject to any order of the Court, to the return of the sum or any part thereof so paid by him.
+17.–(1) Where, on the conviction of a person, the judge of the Court below Temporary makes an order condemning such person to the payment of the whole or of suspension of
+orders made on any part of the costs and expenses of the prosecution for the offence of conviction as to which he is convicted out of any moneys taken from such person on his
+money, awards, apprehension or otherwise or where the judge lawfully makes on the
+costs, etc. conviction of any person before him any order for the payment of money by such convicted person or by any other person or any order affecting the rights of property of such convicted person, the operation of such orders shall in any of such cases be suspended until the expiration of twenty-one days after the day on which any of such orders were made. And in cases where notice of appeal or notice of application for leave to appeal is given within twenty-one days from and after the date of the verdict against such person such orders shall be further suspended until the determination of the appeal against the conviction in relation to which they were made. The Court may, by order, annul any order to which this rule refers on the determination of any appeal under the Act or may vary such order, and such order, if annulled, shall not take effect and, if varied, shall take effect as so varied.
+The proper officer of the Court below shall keep a record of any orders to which this rule refers.
+(2) Where upon the conviction of any person of any offence, the trial court orders that any disqualification, forfeiture or disability attach to such person and notice of appeal or notice of application to appeal is given in respect of such conviction, sentence or order, the Court may upon application suspend such disqualification, forfeiture or disability until the determination of the proceedings upon appeal.
+(3) Where the judge of the Court below makes any such order on a person convicted before him, as mentioned in this rule, he shall give such directions as he thinks right as to the retention, by any person, of any money or valuable securities belonging to the person so convicted and taken from such person on his apprehension or of any money or valuable securities at the date of his conviction in the possession of the prosecution for the period of twenty-one days, or in the event of an appeal, until the determination thereof by the Court. The proper officer of the Court below shall keep a record of any directions given under this rule.
+(4) When the judge of the Court below on the conviction of a person
+before him makes any order for the payment of money by such person or by any other person upon such conviction, and, by reason of this rule, such order would otherwise be suspended, such judge may, if he thinks right to do so, direct that the operation of such order shall not be suspended unless the person on whom such order has been made shall, in such manner and within such time as the judge shall direct, give security by way of undertaking or otherwise for the payment to the person in whose favour such order has been made to the amount therein named.
+Such security may be to the satisfaction of the person in whose favour the order for payment has been made or of any other person as the judge shall direct.
+(5) Where on a conviction any property, matters or things, the
+subject of the prosecution or connected therewith, are to be or may be ordered to be destroyed or forfeited under the provisions of any rule, regulation, statute, or other law, the destruction or forfeiture or order for destruction or forfeiture thereof shall be suspended for the period of twenty-one days from and after the date on which the verdict on the indictment was returned, and in the event of an appeal under the Act, shall be further suspended until the determination thereof by the Court.
+(6) Where, upon conviction of any person of any offence, any claim
+may be made or any proceedings may be taken under any rule, regulation, statute or other law against such person or any other person in consequence of such conviction, such proceedings shall not be taken until after the period of twenty-one days from the date on which the verdict against such person was returned nor in the event of an appeal under the Act to the Court until the determination thereof.
+(7) Any person affected by any orders which are suspended under
+this rule may, with the leave of the Court, be heard on the final determination of any appeal, before any such orders are varied or annulled by the Court.
+Procedure on application for bail. Right of Sureties. Estreat of
+Recognisances.
+Appellant and 18.–(1) Where the Court admits an appellant to bail pending the surety’s
+determination of his appeal on an application by him duly made, the Court recognisances-
+shall specify the amounts in which the appellant and his surety or sureties before whom to
+(unless the Court directs that no surety is required) shall be bound by be taken. recognisance, and shall direct, if it thinks right to do so, before whom the recognisances of the appellant and his surety or sureties (if any) may be taken.
+(2) The Chief Registrar shall notify the appellant and the officer in charge of the prison within which he is confined, of the terms and conditions on which the Court admits the appellant to bail under the rules.
+(3) In the event of the Court not making any special order or giving any special directions under this rule, the recognisances of the appellant and of his surety or sureties (if any) may be taken before a magistrate or justice of the peace and shall be sent to the Chief Registrar of the Court.
+(4) The recognisances provided for in this rule shall be in Forms 11 and 12 in Appendix C.
+(5) The Chief Registrar, on being satisfied that the recognisances of the appellant and his surety or sureties (if any) are in due form and in compliance with the order of the Court admitting the appellant to bail shall send in Form 13 in Appendix C a notice to the officer of the prison in which the appellant is then confined. This notice, when received by the officer, shall be a sufficient authority to him to release the appellant from custody.
+(6) An appellant who has been admitted to bail shall be personally present at each and every hearing of his appeal and at the final determination thereof. The Court may, in the event of such appellant not being present at any hearing of his appeal, if it thinks right to do so, decline to consider the appeal, and may proceed summarily to dismiss it, and may issue a warrant for the apprehension of the appellant in Form 14 in Appendix C,
+provided that the Court may consider the appeal in his absence, or make such other order as it may think fit.
+(7) When an appellant is present before the Court, the Court may, on an application made by any person or, if it thinks right to do so, without any application, make an order admitting the appellant to bail, or revoke or vary any such order previously made, or enlarge from time to time the recognisances of the appellant or of his sureties or substitute any other surety for a surety previously bound as it thinks right.
+(8) At any time after an appellant has been released on bail, the Court may, if satisfied that it is in the interest of justice to do so, revoke the order admitting to bail, and issue a warrant in Form 14 in Appendix C for his apprehension, and order him to be committed to prison.
+(9) The Court may on any breach of the recognisances of the appellant, if it thinks right to do so, order such recognisances and those of his surety or sureties to be estreated, and the manner of such estreat shall be that provided under the law.
+(10) Where the surety or sureties for an appellant upon whose
+recognisances such appellant has been released on bail by the Court suspects or suspect that the appellant is about to depart out of Belize or in any manner to fail to observe the conditions of his recognisances on which he was so released, such surety or sureties may lay an information before a magistrate acting in and for the judicial district in which the appellant is, or is by such surety or sureties believed to be, or in which such surety or sureties may then be and such magistrate shall thereupon issue a warrant for the apprehension of the said appellant.
+(11) The appellant shall, on being apprehended under the warrant, be
+brought before the Court in and for which the magistrate acts, before whom the said information was laid or some other magistrate’s court specified in the warrant. The Court shall, on verification of the information by oath of the informant, by warrant of commitment, commit him to the prison to which persons charged with indictable offences before such Court are ordinarily committed. The officer in charge of such prison shall, unless such prison was the prison from which the appellant was released on bail under these rules, notify the Prison Authority of such commitment as mentioned in this rule.
+Where the appellant is by such Court committed to a prison which was not the prison from which he was released on bail after his conviction the Prison Authority, subject to any order of the Court, may transfer him to the prison from which he was so released.
+(12) The clerk of the Court on the commitment of any such appellant,
+shall forthwith notify the Chief Registrar to that effect, and forward to him the information and the deposition in verification thereof taken before such Court together with a copy of the warrant of commitment.
+(13) When an appellant has been released on bail and has, under a
+warrant under these rules or by his surety or sureties, been apprehended and is in prison, the officer in charge thereof shall forthwith notify the Chief Registrar who shall take steps to inform the Court thereof and the Court may give to the
+Abandonment of appeal.
+19.–(1) An appellant may, at any time after he has duly served notice of Abandonment of Appeal. appeal or of application for leave to appeal, or of application for extension
+of time within which such notice shall be given, abandon his appeal by giving notice of abandonment thereof in Form 15 in Appendix C to the Chief Registrar, and upon such notice being given the appeal shall be deemed to have been dismissed by the Court.
+(2) Upon receipt of a notice of abandonment duly completed and signed or marked by the appellant or the party authorised to sign notices under rule 3 of this Order, the Chief Registrar shall give notices thereof in Form 16 in Appendix C to the respondent, the Prison Authority and the Registrar of the Court below, and, in the case of an appeal against a conviction involving a sentence of death, shall in like manner give notice to the Secretary to the Governor-General, for the information of the Governor- General, and the Chief Registrar shall also return to the Registrar of the Court below any original documents and exhibits received from him.
+Determination of Appeal
+20. Where, upon the trial of a person entitled to appeal against his Varying order of conviction, an order of restitution of any property to any person has been restitution of
+property. made by the judge of the Court below, the person in whose favour or against whom the order of restitution has been made, and, with the leave of the Court, any other person shall, on the final hearing by the Court of an appeal against the conviction on which such order of restitution was made, be entitled to be heard by the Court before any order annulling or varying such order of restitution is made.
+21.–(1) Unless the Court directs to the contrary in cases where, in the
+Judgments of the opinion of the Court, the question for decision is a question of law on which Court. it would be convenient that separate judgments should be pronounced by the judges of the Court, the judgment of the Court shall be pronounced by the presiding judge or such other judge of the Court hearing the appeal as he may direct, and no judgment with respect to the determination of any question shall be separately pronounced by any other member of the Court.
+(2) Notwithstanding sub-rule (1), separate judgments shall be pronounced if there are dissenting opinions of the judges of the Court in criminal matters.
+(3) At a sitting of the Court for the purpose of delivering a single judgment, the Court may be constituted by one, two or three judges.
+22. Without prejudice to the generality of the foregoing, the Chief Promulgation of
+judgment. Registrar may, at the direction of the Chief Justice, promulgate, whether on paper or by electronic means, a judgment of the Court or of any judge sitting as the single judge.
+23.–(1) On the final determination of any appeal or of any application to the Notification on
+final Court, the Chief Registrar shall give to the appellant if he be in custody and determination of has not been present at such final determination, and to the respondent and
+appeals. the Prison Authority, notice of such determination in Forms 17 to 20 in Appendix C.
+(2) In any case of an appeal in relation to a conviction involving a
+sentence of death, the Chief Registrar shall, on receiving the notice of appeal or of any application for leave to appeal, send copies thereof to the Secretary to the Governor-General for the information of the Governor- General and to the Prison Authority and on the final determination of any such appeal by the Court shall forthwith notify the appellant, the Secretary to the Governor-General for the information of the Governor- General, the respondent and the Prison Authority.
+24.–(1) The Chief Registrar, at the final determination of an appeal, shall result of appeal. Entry of decision notify in such manner as he thinks most convenient to the Registrar of the of Court on Court below, the decision of the Court in relation thereto and also any records.
+orders or directions made or given by the Court in relation to such appeal or any matter connected therewith.
+(2) The Registrar of the Court below shall on receiving the
+notification referred to in this rule, enter the particulars thereof on the records of such Court.
+Restrictions on 25.
+The Registrar of the Court below shall not issue under any law issue of
+authorising him to do so, a certificate of conviction of any person convicted certificate of
+in the Court below if notice of appeal or notice of application for leave to conviction. appeal is given, until the determination or abandonment thereof.
+26. Upon the final determination of an appeal for the purposes of which Return of
+the Chief Registrar has obtained from the Registrar of the Court below any original depositions, etc. original depositions, exhibits, information, inquisition, plea or other
+documents usually kept by the Registrar of the Court below, or forming part of the record of the Court below, the Chief Registrar shall, where practicable, cause them to be returned to the Registrar of the Court below.
+Procedure as to Witnesses before Court and their examination before
+examiner.
+Attendance of 27.–(1) Where the Court has ordered any witness to attend and be examined witness before
+before the Court, an order in Form 21 in Appendix C shall be served upon the Court.
+such witness specifying the time and place at which to attend for such purpose.
+(2) Such order may be made on the application, at any time, of the
+appellant or respondent, but if the appellant is in custody and not legally represented the application shall be made in Form 22 in Appendix C.
+(3) Where the Court orders the examination of any witness to be
+conducted otherwise than before the Court itself, such order shall specify the person appointed as examiner to take, and the place of taking, such examination and the witness or witnesses to be examined thereat.
+(4) The Chief Registrar shall furnish to the person appointed to take such examination any documents or exhibits and any other material relating to the appeal as and when requested to do so. Such documents and exhibits and other material shall after the examination has been concluded be returned by the examiner, together with any depositions taken by him under this rule, to the Chief Registrar.
+(5) When the examiner has appointed the day and time for the examination he shall request the Chief Registrar to notify the appellant or respondent and their legal representatives, if any, and when the appellant is in prison, the Prison Authority thereof. The Chief Registrar shall cause to be served on every witness to be examined a notice in Form 23 in Appendix C.
+(6) Every witness examined before an examiner under this rule shall give his evidence upon oath or on affirmation to be administered or taken by such examiner, except where any such witness if giving evidence as a witness on a trial on indictment need not be sworn.
+(7) The examination of every such witness shall be taken in the form of a deposition and unless otherwise ordered shall be taken in private. The caption in Form 24 in Appendix C shall be attached to any such deposition.
+(8) Where any witness shall receive an order or notice to attend before the Court or an examiner, the Chief Registrar may, if it appears to him necessary to do so, pay to such witness a reasonable sum for his expenses.
+(9) The appellant and his legal representative (if any) and the respondent shall be entitled to be present at and take part in any examination of any witness to which this rule relates.
+Proceedings on 28. When an order of reference is made by the Court to a special reference. commissioner, the question to be referred and the person to whom as special commissioner it is referred, shall be specified in the order. The Court may in such order, or by giving directions as and when it from time to time thinks right, specify whether the appellant or respondent or any person on their behalf may be present at any examination or investigation or at any stage thereof as may be ordered, and specify any and what powers of the Court may be delegated to such special commissioner, and may require him from time to time to make interim reports to the Court upon the question referred to him, and may, if the appellant is in custody, give leave to him to be present at any stage of such examination or investigation and give the necessary directions to the Prison Authority accordingly, and may give directions to the Chief Registrar that copies of any report made by such special commissioner shall be furnished to the appellant and respondent.
+Case stated under section 230 of the Act Judge to forward 29.–(1) The judge of the Court below shall forward any case stated by him special case to in pursuance of section 230 of the Act to the Chief Registrar who shall on Registrar and
+receiving it send a copy of the case to the appellant and respondent copies to be
+respectively. supplied to appellant and respondent. (2) Where under section 230 the judge of the Court below states a
+case for the consideration of the Court, the person convicted shall for the purposes of these rules be deemed to be an appellant who has appealed under section 209, provided that in such case section 228(2) shall not apply.
+(3) Where a case is stated or a question of law reserved for the
+consideration of the Court under section 230, paragraphs (1) and (4) only of rule 30 of this Order shall apply.
+Duties of Chief Registrar
+30. Subject to rule 29 of this Order– Duties of Chief Registrar with respect to notices
+(a) the Chief Registrar shall take all necessary steps for of appeal, etc.
+obtaining a hearing under Part III of the Act of any appeal or application, notice of which is given to him under that Part and shall obtain and lay before the Court in proper form all documents, exhibits and other things relating to the proceedings in the Court before which the appellant or applicant was tried which appear necessary for the proper determination of the appeal or application;
+(b) if it appears to the Chief Registrar that any notice of appeal against a conviction, purporting to be on a ground of appeal which involves a question of law alone, does not show any substantial ground of appeal, the Chief Registrar may refer the appeal to the Court for summary determination, and, where the case is so referred, the Court may, if they consider that the appeal is frivolous and vexatious, and can be determined without adjourning the same for a full hearing, dismiss the appeal summarily, without calling on any persons to attend the hearing or to appear for the Crown thereon;
+(c) the Chief Registrar shall furnish the necessary forms and instructions in relation to notices of appeal or notices of application under Part III of the Act to any person who demands it and to officers of courts, the Prison Authority and such other officers or persons as he thinks fit, and the Prison Authority shall cause those forms and instructions to be placed at the disposal of prisoners desiring to appeal or to make any application under Part III of the Act and shall
+cause any such notices given by a prisoner in his custody to
+be forwarded on behalf of the prisoner to the Chief
+Registrar;
+(d) the Chief Registrar shall report to the Court or some judge
+thereof any case in which it appears to him that, although
+no application has been made for the purpose, an attorney-
+at-law ought to be assigned to an appellant under the
+powers given to the Court by Part III of the Act.
+ORDER IV
+APPEALS FROM HIGH COURT’S ORDER ON APPEAL FROM INFERIOR COURTS IN ANY CRIMINAL CAUSE OR MATTER
+1. The provisions of rules 1, 6 and 15 of Order III shall apply to a Institution of
+appeals under person desiring to appeal under section 211 of the Act to the Court from an section 211 of order of the High Court made on appeal from an inferior court except that
+the Act. the references to Forms 1 and 2 in Appendix C shall be deemed to be references to Forms 25 and 26 respectively in that Appendix.
+2. Where leave to appeal to the Court is granted by the High Court, the Certificate of
+Registrar of High Registrar of the High Court shall so certify and such certificate shall be Court granting attached to the notice of appeal. leave to appeal.
+3. In this Order, the date of an order of the High Court shall be deemed Ascertainment of
+date of order of to be the date on which judgment is delivered or the order made. High Court. 4. The time within which a person desirous of appealing shall give
+Time limit for notice of appeal or notice of his application for leave to appeal to the Court appealing. shall commence to run from the day of the date of the order of the High Court.
+5. An application to the Court for an extension of time within which Notice of
+application for notices may be given, shall be in Form 26 in Appendix C. Every person extension of time making an application for such extension of time shall send to the Registrar
+for appealing. of the Court below, together with the proper form of such application, a form duly filled up of notice of appeal or of notice of application for leave to appeal, appropriate to the ground or grounds upon which he desires to question the order of the Court below.
+6.-(1) Rule 3 of Order III shall apply to an appeal under section 211 except Signature and
+service of that the first sentence of paragraph (1) of this rule shall not apply when the notices. appeal is brought by the prosecution.
+(2) A prosecutor-appellant shall serve copies of any notices in Form 25 or 26 issued by him on the respondent; and the Registrar of the Court
+below shall send to the prosecutor-respondent copies of any such notices delivered by a defendant-appellant.
+7.–(1) The Registrar of the Court below, when he has received a notice of Record of appeal or a notice of application for leave to appeal, or a notice of appeal. application for extension of the time within which under these rules such notice shall be given, shall forward to the Chief Registrar four copies of the proceedings in the Court below; and shall also forward the original exhibits in the case as far as practicable and relevant to the appeal.
+(2) For the purposes of this rule, copies of proceedings shall contain,
+(a) the record on appeal to the High Court and notes of any fresh evidence admitted at the hearing of the appeal insofar as such record and notes are relevant to the grounds of appeal;
+(b) the order of the High Court and the reasons given by the judge thereof.
+8. The following rules contained in Order III shall apply in the case of Application of Rules 11, 13 and appeals brought under section 211– 14 of Order III.
+(a) rule 11 (Copies of documents required by appellant);
+(b) rule 14 (Applications to a single judge).
+9.–(1) A defendant-appellant, notwithstanding that he is in custody, shall be Presence of appellant at entitled to be present, if he desires it, on the hearing of his appeal, except proceedings in
+where the appeal is on some ground involving a question of law alone, but the Court.
+in that case and on an application for leave to appeal and on any proceedings, preliminary or incidental to an appeal, he shall not be entitled to be present except where the Court gives him leave to be present.
+(2) The power of the Court to pass any sentence under the Act may
+be exercised notwithstanding that the appellant is for any reason not present.
+(3) When an appeal is brought by the prosecution it shall be the duty
+of the Chief Registrar to ascertain whether the appellant desires to be present when the Court considers his appeal.
+10.–(1) Where any application is made by the prosecution and is granted in Notification of
+the absence of the respondent, the prosecution shall serve notice on the application if granted. respondent of the order of the Court or judge and where any application is
+made by a defendant and is granted in the absence of the prosecution, the defendant shall serve notice of such order on the prosecution, unless he is in custody in which case the Chief Registrar shall notify the prosecution of such order.
+(2) Where leave to appeal is granted to a defendant-appellant the Chief Registrar, if the prosecutor is a private person, shall inquire if he intends to defend the appeal and, if the answer is in the negative, the Chief Registrar shall so inform the Director of Public Prosecutions.
+11.–(1) Where any person who has appealed to the High Court is in custody
+Bail. and intimates to a judge of that Court that he is desirous of appealing to the Court against the order of the High Court, such judge may, if he thinks right to do so, order such person forthwith to enter into recognisances in such amount and with or without sureties in such amount, as such judge may think right, to prosecute his appeal. The Registrar of the Court below shall forward the recognisances of the appellant and his surety or sureties to the Chief Registrar.
+(2) If an appellant to whom paragraph (1) of this rule applies does not serve in accordance with these rules a notice of appeal or of abandonment of his appeal within twenty-one days from the order of the High Court, the Registrar of the Court below shall report such omission to the Court who may after due notice to the appellant or his sureties, if any, order an estreat of the recognisances of the appellant and his sureties, and the manner of such estreat shall be that provided for estreating recognisances under the law, and may issue a warrant for the apprehension of the appellant and may commit him to prison.
+(3) Where bail is granted by the Court or by the High Court, rule 18 of Order III shall apply,
+provided that in paragraph (8) of this rule, reference to the court before which he was convicted shall be deemed to be a reference to the High Court.
+12.–(1) Where any order of an inferior court is made of the kind referred to Temporary
+suspension of in paragraphs (1) and (5) of rule 17 of Order III and such order has been orders. suspended pending an appeal to the High Court, such suspension shall continue for twenty-one days after the order of the High Court made on such appeal. In case leave to appeal to the Court is granted within such twenty-one days, such order shall be further suspended until the determination of the appeal to the Court. The Court may by order annul any order to which this rule refers on the determination of any appeal under the Act or may vary such order, and such order, if annulled, shall not take effect and, if varied, shall take effect as so varied.
+(2) Where the High Court itself on affirming the order of an inferior court orders that any disqualification, forfeiture or disability attach to a party to an appeal from the order of the High Court, the Court may upon application suspend such disqualification, forfeiture or disability until the determination of the proceedings upon appeal.
+(3) In any appeal, where any order is suspended as provided by
+paragraph (1), the judge of the High Court shall give the directions
+specified in paragraph (3) of rule 17 of Order III and may direct that such order be not suspended unless the person to whom such order refers shall give security as prescribed in paragraph (4) of rule 17 of Order III.
+(4) No proceedings shall be taken on claims under any law against a
+party to any appeal under section 211 which are based on the validity of the order of the High Court from which the appeal is brought for the period of twenty-one days from the order of the High Court and, in case leave to appeal to the Court is granted within such twenty-one days, until the determination thereof.
+(5) Paragraph (7) of rule 17 of Order III shall apply to an appeal
+under section 211.
+Varying order of 13. Any person in whose favour or against whom an order of restitution restitution or
+has been made in any criminal cause or matter shall, on the hearing of an property.
+appeal brought in such cause or matter under section 211, be entitled to be heard by the Court before any order annulling or varying such order of restitution is made.
+14. The following rules contained in Order III shall apply in the case of Application of rules 19, 22 (1), appeals brought under section 211– 23, 25, 26, and 27 of Order III.
+(a) rule 19-(Abandonment);
+(b) rules 22 (1) and 23-(Notification of result of appeal);
+(c) rule 25-(Return of Exhibits); and
+(d) rules 26 and 27-(Taking of evidence before the Court, an examiner or a special commissioner).
