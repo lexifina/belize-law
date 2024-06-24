@@ -1,0 +1,4 @@
+Belize Constitution
+BELIZE:
+STATUTORY INSTRUMENT
+NO. 94 OF 2024
