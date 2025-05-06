@@ -1,0 +1,4 @@
+Belize Constitution
+BELIZE:
+STATUTORY INSTRUMENT
+NO. 68 OF 2025
