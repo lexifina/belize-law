@@ -1,0 +1,4 @@
+Belize Constitution
+BELIZE:
+STATUTORY INSTRUMENT
+No. 50 OF 2026
