@@ -1,0 +1,13 @@
+BELIZE:
+STATUTORY INSTRUMENT
+No. 53 of 2026
+ORDER made by the Minister of responsible for the Bureau
+of Standards, on the recommendation of the Belize Bureau of Standards, in exercise of powers conferred upon him by section 9(2) of the Standards Act, Chapter 295 of the Substantive Laws of Belize, Revised Edition 2020, and all other powers thereunto him enabling.
+(Gazetted 16th May, 2026).
+WHEREAS, section 9(3) of the Standards Act, Chapter 295
+of the Laws of Belize provides that the Minister shall, by publication in the Gazette, give at least thirty days’ notice of his intention to make an Order declaring a compulsory standard and shall thereby indicate the date on which it is intended that the compulsory standard shall come into force;
+AND WHEREAS, a notice of intention to declare the BELIZE
+STANDARD SPECIFICATION FOR PROTECTIVE HELMETS FOR ROAD USERS (BZS 31: 2026) to be a compulsory standard was published in the Belize Gazette dated 4th April 2026;
+AND WHEREAS, no objections have been received to the
+making of the said Order;
+NOW, THEREFORE, IT IS ORDERED as follows:–
