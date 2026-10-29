@@ -1,0 +1,4 @@
+.cache/
+.tmp-build/
+.tmp/
+__pycache__/
