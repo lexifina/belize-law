@@ -1,0 +1,57 @@
+{
+  "corpus": "bz/national/acts",
+  "name": "Laws of Belize (Revised Edition 2020, Acts 2021-2026 and statutory instruments 2020-2026)",
+  "label": "Belize",
+  "language": "en",
+  "laws": {
+    "chapters": 413,
+    "subsidiary_instruments": 1039,
+    "acts": 228,
+    "statutory_instruments": 795
+  },
+  "history": "current-only",
+  "history_from": "2019-09-20",
+  "record_to": "2026-10-17",
+  "record_note": "The Chapters of the Substantive Laws of Belize and the instruments of the Subsidiary Laws, Revised Edition 2020, as at 31 December 2020 (one version each, current-only: agm.gov.bz publishes no earlier consolidation); the Acts of 2021 to 2026 as enacted, dated by assent; and the statutory instruments of 2020 to 2026 that have a text layer, as made, dated by their Gazette date. Later Acts and instruments are not applied to the texts they amend; scanned instruments with no text layer are listed, not built.",
+  "checked_on": "2026-10-29",
+  "built": "2026-10-29",
+  "in_force_trailer": "In-force",
+  "baseline_trailer": "Consolidated",
+  "dates": {
+    "commit": "Chapters: the Revised Edition 2020 as-at date (2020-12-31). Acts: the day of assent, the day an Act comes into force unless it sets another (Interpretation Act, Cap. 1, s. 41); the gazetted day where no assent date is printed. Subsidiary laws: the Revised Edition 2020 as-at date. Statutory instruments: the day gazetted, when an instrument has the force of law unless it names another day (Cap. 1, s. 21(h)); the made day where no Gazette date is readable",
+    "baseline_trailer": "Consolidated",
+    "other_trailers": [
+      "In-force-basis",
+      "Assented",
+      "Gazetted",
+      "Made",
+      "Names-chapter",
+      "Made-under",
+      "Instrument",
+      "Statutory-instrument",
+      "Text-layer"
+    ],
+    "time": "12:00 UTC-6 (Belize, no summer time)"
+  },
+  "author": {
+    "consolidated": "Laws of Belize (Attorney General's Ministry)",
+    "enacted": "the Act or instrument itself (act-<year>-<number>@agm-gov-bz.invalid, si-<year>-<number>@agm-gov-bz.invalid)",
+    "amendment": "none: no amendment is applied to a Chapter"
+  },
+  "scope": {
+    "trailer": "Applies",
+    "when_absent": "not extracted for Belize; commencement, savings and transitional rules are in each Act",
+    "default_reach": {
+      "rule": "presumption against retroactivity, and savings on repeal",
+      "meaning": "unless the contrary intention appears, a repeal does not revive anything not in force, or affect the previous operation of the repealed law, rights and liabilities accrued under it, penalties incurred, or proceedings about them",
+      "authority": "Interpretation Act, Chapter 1 of the Substantive Laws of Belize, R.E. 2020, s. 28 (other effects of repeal); s. 41 (an Act comes into force on assent unless it says otherwise)",
+      "decided_here": false
+    }
+  },
+  "citation": {
+    "file": "(cap/[0-9]+(?:\\.[0-9]+)?[A-Z]?|acts/[0-9]{4}/[0-9]+)/0*([0-9]+[A-Z]*)\\.md",
+    "cites": "([Ss]ection|s\\.) ?{n}([^0-9A-Za-z]|$)"
+  },
+  "reuse": "none found: the Copyright Act, Cap. 252, excludes no legislation and gives the State copyright in works made by or under the direction or control of the Government (s. 25(4)); private repository",
+  "tool": "tools/in_force_on.py"
+}
