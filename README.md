@@ -1,5 +1,7 @@
 # The laws of Belize, as a git repository
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Belize's national law, which global-law reads at `belize/national/acts/`.
+
 The legislation of Belize as a git repository: the 413 Chapters of the Substantive Laws of Belize, Revised Edition 2020 (including the Belize Constitution, Chapter 4), with the 1,039 instruments of the Subsidiary Laws made under them, the 228 Acts passed from 2021 to 2026, as enacted, and the 795 statutory instruments of 2020 to 2026 that have a text layer, as made. The source is the [Laws of Belize](https://agm.gov.bz/laws) page of the Attorney General's Ministry. There is one file per section or schedule (37,253 files), with one paragraph per line, so `git blame` and `git diff` work line by line.
 
 **What this repository is not: a history before 2021.** The Ministry publishes one consolidation, the Revised Edition 2020, "showing the substantive laws as at 31st December, 2020", and no earlier one. So each Chapter is a single commit holding its text as at that date (the shape called *current-only*). Nothing before that text can be rebuilt from this source, so there is no line-by-line history before 31 December 2020. The amending laws that the edition prints in its margins are kept: in the files, and listed in [`data/amendments.csv`](data/amendments.csv).
